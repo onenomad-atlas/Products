@@ -41,12 +41,12 @@
 - [Church's](https://www.church-footwear.com/) (UK)   
 - [Loake](https://www.loake.co.uk/) (UK)   
 - [Wm. Lennon](https://www.wmlennon.com/) (UK)   
-## 🧴 Attars and Perfumes    
-## 🛁 Bath    
-## 🛏️ Bed    
-## 🚗 Garage    
-## 🛒 Grocery    
-## 🏠 Home     
+## Attars and Perfumes    
+## Bath    
+## Bed    
+## Garage    
+## Grocery    
+## Home     
 - [Miele](https://www.miele.com/) (Germany)    
 - [Dualit](https://www.dualit.com/) (UK)   
 - [Bosch Home](https://www.bosch-home.com/us/) (Germany)   
@@ -64,7 +64,7 @@
 - [Knipex](https://www.knipex-tools.com/) (Germany)   
 - [Makita](https://www.makitatools.com/) (Japan)   
 - [Rockwell](https://getrockwell.com/) (USA)    
-## 🍽️ Kitchen  
+## Kitchen  
 - [Le Creuset](https://www.lecreuset.com/) (France)   
 - [De Buyer](https://www.debuyer.com/) (France)   
 - [Fissler](https://www.fissler.com/) (Germany)   
@@ -78,12 +78,12 @@
 - [Hestan Culinary](https://hestanculinary.com/collections/best-sellers) (USA)   
 - [Mann Kitchen](https://mannkitchen.com/products/the-original-pepper-cannon-pepper-mill) (USA)   
 - [PK Grills](https://www.pkgrills.com/) (USA)
-## 💊 Medicine and Vitamins  
-## 🧑‍⚕️ Personal  
-## 🐜 Pest Control  
-## 💦 Sprinkler System  
-## 📱 Tech  
-## 🌿 Yard    
+## Medicine and Vitamins  
+## Personal  
+## Pest Control  
+## Sprinkler System  
+## Tech  
+## Yard    
 
 
 
