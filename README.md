@@ -41,7 +41,7 @@
 - [Church's](https://www.church-footwear.com/) (UK)   
 - [Loake](https://www.loake.co.uk/) (UK)   
 - [Wm. Lennon](https://www.wmlennon.com/) (UK)
-- 
+  
 ## Attars and Perfumes    
 - **Ajmal**
     - Dahn Al Oudh Royal Combodi
@@ -56,17 +56,47 @@
     - Indonesian Oud
 - **Boadicea the Victorious**
     - Exalted 
+- **Spirit of Dubai**
+    - Abjar
+    - Baz
+- **YUSUF BHAI**
+    - Imperial Valley
 
-### Spirit of Dubai
+- **SITES**
+- [Oriental Fragrance](https://www.oriental-fragrance.com/en/)
+- [Ajmal US](https://ajmalperfumeus.com/?srsltid=AfmBOoqUszccJ1xAiaZn4UIWcQYb0e4TNhRBia_gD0uMFdYjfcN4WBbu)
+- [myperfumesselectusa](https://www.myperfumesselectusa.com/)
 
-Abjar
 
-Baz
-
-### YUSUF BHAI
-
-Imperial Valley
 ## Bath    
+
+- **LEKEYE Drain Hair Catcher**  
+  Bathtub Drain Cover/Protector for Pop-Up & Regular Drains (Patented)
+
+- **Village Naturals Therapy Body Wash**  
+  Aches & Pains Muscle Relief Foaming Bath Oil & Body Wash (16oz, 3-pack)  
+  [Link](https://www.notion.so/Village-Naturals-Therapy-Aches-and-Pains-Muscle-Relief-Foaming-Bath-Oil-and-Body-Wash-16oz-3-pack-19f56238083b80788c73cb4d0f305c41?pvs=21)
+
+- **SparkPod 23-Stage Shower Filter**  
+  High Output Universal Filter for Dry Hair & Skin (Luxury Polished Chrome)  
+  [Link](https://www.notion.so/SparkPod-23-Stage-Shower-Head-Filter-for-Dry-Hair-and-Skin-High-Output-Universal-Shower-Filters-to-19f56238083b8004aad3ca9e3f6db200?pvs=21)
+
+- **HammerHead Handheld Bidet**  
+  All-Metal Bidet Sprayer for Toilet (Chrome, 59” Hose, Leak-Proof)  
+  [Link](https://www.notion.so/HammerHead-Showers-All-Metal-Handheld-Bidet-Sprayer-for-Toilet-Chrome-Handheld-Bidet-Attachment-19f56238083b80b98c23e160a9554235?pvs=21)
+
+- **SparkPod Ultra Shower Filter**  
+  150-Stage Water Filter, Removes 95% Chlorine & Heavy Metals (Chrome)  
+  [Link](https://www.notion.so/SparkPod-Ultra-Shower-Filter-Shower-Head-Water-Filter-Cartridge-150-Stage-Equivalent-Removes-Up-19f56238083b8099b269e640107e1bb0?pvs=21)
+
+- **YASONIC Corner Shower Caddy**  
+  3-Pack Adhesive, Rustproof Stainless Steel, No-Drill Wall Mount  
+  [Link](https://www.notion.so/YASONIC-Corner-Shower-Caddy-3-Pack-Adhesive-Shower-Caddy-with-Soap-Holder-and-12-Hooks-Rustproof-S-19f56238083b80f29604c051af84a219?pvs=21)
+
+- **Delta 3-Way Shower Diverter**  
+  U4929-PK, Chrome, 3 x 3 x 3.75 inches  
+  [Link](https://www.notion.so/Delta-Faucet-U4929-PK-3-Way-Shower-Arm-Diverter-for-Handshower-Chrome-3-x-3-x-3-75-inches-1a056238083b80a2bd66ea051521b0ed?pvs=21)
+
 
 ## Bed    
 
