@@ -1,6 +1,6 @@
 # Products
 
-- [🧥 Apparel](#Apparel)
+- [Apparel](#Apparel)
 - [Attars and Perfumes](#Attars-and-Perfumes)
 - [Bath](#Bath)
 - [Bed](#Bath)
