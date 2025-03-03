@@ -15,16 +15,16 @@
 - [Yard](#Yard)
 
 
-# Attars and Perfumes
-# Bath
-# Bed
-# Garage
-# Grocery
-# Home
-# Kitchen
-# Medicine and Vitamins
-# Personal
-# Pest Control
-# Sprinkler System
-# Tech
-# Yard
+# 🧴 Attars and Perfumes    
+# 🛁 Bath    
+# 🛏️ Bed    
+# 🚗 Garage    
+# 🛒 Grocery    
+# 🏠 Home    
+# 🍽️ Kitchen  
+# 💊 Medicine and Vitamins  
+# 🧑‍⚕️ Personal  
+# 🐜 Pest Control  
+# 💦 Sprinkler System  
+# 📱 Tech  
+# 🌿 Yard    
