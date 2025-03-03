@@ -1,5 +1,6 @@
 # Personal Favorites
 
+- [Apparel](#Apparel)
 - [Attars and Perfumes](#Attars-and-Perfumes)
 - [Bath](#Bath)
 - [Bed](#Bath)
@@ -14,7 +15,7 @@
 - [Tech](#Tech)
 - [Yard](#Yard)
 
-
+## 🧥 Apparel
 ## 🧴 Attars and Perfumes    
 ## 🛁 Bath    
 ## 🛏️ Bed    
