@@ -1,4 +1,4 @@
-# Personal Favorites
+# Products
 
 - [Apparel](#Apparel)
 - [Attars and Perfumes](#Attars-and-Perfumes)
