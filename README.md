@@ -1,6 +1,6 @@
 # Products
 
-- [Apparel](#Apparel)
+- [🧥 Apparel](#Apparel)
 - [Attars and Perfumes](#Attars-and-Perfumes)
 - [Bath](#Bath)
 - [Bed](#Bath)
@@ -15,7 +15,7 @@
 - [Tech](#Tech)
 - [Yard](#Yard)
 
-# 🧥 Apparel
+## 🧥 Apparel
 - [Portuguese Flannel](https://www.portugueseflannel.com/) (Portugal)   
 - [Naked and Famous](https://www.nakedandfamousdenim.com/) (Canada)   
 - [Uskees](https://uskees.com/) (UK)   
