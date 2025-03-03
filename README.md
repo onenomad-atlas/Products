@@ -44,7 +44,31 @@
 - 
 ## Attars and Perfumes    
 - **Ajmal**
-    - dd
+    - Dahn Al Oudh Royal Combodi
+    - Mukhallat Fazza
+    - Attar Gleam
+    - Different
+- **Roja**
+    - Roja Dove Amber Aoud
+- **Clive Christian**
+    - Original
+- **Zegna**
+
+Indonesian Oud 
+
+### Boadicea the Victorious
+
+Exalted 
+
+### Spirit of Dubai
+
+Abjar
+
+Baz
+
+### YUSUF BHAI
+
+Imperial Valley
 ## Bath    
 
 ## Bed    
