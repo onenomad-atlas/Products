@@ -1,9 +1,9 @@
 # Products
 
-### [👕 Apparel](#Apparel)  
-### [🧴 Attars and Perfumes](#Attars-and-Perfumes)  
-### [🛁 Bath](#Bath)  
-### [🛏️ Bed](#Bed)  
+## [👕 Apparel](#Apparel)  
+## [🧴 Attars and Perfumes](#Attars-and-Perfumes)  
+## [🛁 Bath](#Bath)  
+## [🛏️ Bed](#Bed)  
 ## [🚗 Garage](#Garage)  
 ## [🛒 Grocery](#Grocery)  
 ## [🏠 Home](#Home)  
