@@ -69,32 +69,13 @@
 
 
 ## Bath    
-[LEKEYE Drain Hair Catcher](https://www.amazon.com/LEKEYE-Catcher-Strainer-Stainless-Protector-Silver/dp/B07SG474HG/ref=sr_1_5?crid=381J0D2ZIP75D&dib=eyJ2IjoiMSJ9.jDBvaTdcrQdf25sVx5OB76BbYoRNnaLztma5v4ydOLR5ku7CnPWdrdWpkCBtqdquNfKnlV0fLGxSgyD7uXkVlskxL0X7gt09bxbMnKfDIxEARmFSiDb4pJp-llGfxYl3Sd83OShkBW1SKFyIG_EH_ryyO5EavxTfiYJSMAt12fI-tdhEJsCVbUQzmUM06X_X9nEnblI3Q-bUVCwtjjXZiIZm2glNwi6PY5XK8Gm96cTbfMshcW3Fxs8GXeAcgnKpzNEflOnAsvtcwakhNMlz1pJJK833Zv8T6BVtPUBLlg14z79lPKUpqYAgeMRx4cBqRPxZ5XA9kx_UYoAqChvChHHFHs4_2gISmJIG_oFLU8FPOZFrbfv3DDqdkOkoIPPsCTLF-vC3vnvgopyUzlfzD86lUckZaX3vKnVQN_VU0_yqGIyWV6hXidkzmjj4bkSt.MlDobtwEfF0CK0aNGy0WR9myoHhw95gwOKIT8uVbSEM&dib_tag=se&keywords=LEKEYE%2BDrain%2BHair%2BCatcher%2FBathtub%2BDrain%2BCover%2FDrain%2BProtector%2Bfor%2BPop-Up%2B%26%2BRegular%2BDrains(Patented%2BProduct)&qid=1740002829&sprefix=lekeye%2Bdrain%2Bhair%2Bcatcher%2Fbathtub%2Bdrain%2Bcover%2Fdrain%2Bprotector%2Bfor%2Bpop-up%2B%26%2Bregular%2Bdrains%2Bpatented%2Bproduct%2B%2Caps%2C225&sr=8-5&th=1)    
-
-
-- **Village Naturals Therapy Body Wash**  
-  Aches & Pains Muscle Relief Foaming Bath Oil & Body Wash (16oz, 3-pack)  
-  [Link](https://www.notion.so/Village-Naturals-Therapy-Aches-and-Pains-Muscle-Relief-Foaming-Bath-Oil-and-Body-Wash-16oz-3-pack-19f56238083b80788c73cb4d0f305c41?pvs=21)
-
-- **SparkPod 23-Stage Shower Filter**  
-  High Output Universal Filter for Dry Hair & Skin (Luxury Polished Chrome)  
-  [Link](https://www.notion.so/SparkPod-23-Stage-Shower-Head-Filter-for-Dry-Hair-and-Skin-High-Output-Universal-Shower-Filters-to-19f56238083b8004aad3ca9e3f6db200?pvs=21)
-
-- **HammerHead Handheld Bidet**  
-  All-Metal Bidet Sprayer for Toilet (Chrome, 59” Hose, Leak-Proof)  
-  [Link](https://www.notion.so/HammerHead-Showers-All-Metal-Handheld-Bidet-Sprayer-for-Toilet-Chrome-Handheld-Bidet-Attachment-19f56238083b80b98c23e160a9554235?pvs=21)
-
-- **SparkPod Ultra Shower Filter**  
-  150-Stage Water Filter, Removes 95% Chlorine & Heavy Metals (Chrome)  
-  [Link](https://www.notion.so/SparkPod-Ultra-Shower-Filter-Shower-Head-Water-Filter-Cartridge-150-Stage-Equivalent-Removes-Up-19f56238083b8099b269e640107e1bb0?pvs=21)
-
-- **YASONIC Corner Shower Caddy**  
-  3-Pack Adhesive, Rustproof Stainless Steel, No-Drill Wall Mount  
-  [Link](https://www.notion.so/YASONIC-Corner-Shower-Caddy-3-Pack-Adhesive-Shower-Caddy-with-Soap-Holder-and-12-Hooks-Rustproof-S-19f56238083b80f29604c051af84a219?pvs=21)
-
-- **Delta 3-Way Shower Diverter**  
-  U4929-PK, Chrome, 3 x 3 x 3.75 inches  
-  [Link](https://www.notion.so/Delta-Faucet-U4929-PK-3-Way-Shower-Arm-Diverter-for-Handshower-Chrome-3-x-3-x-3-75-inches-1a056238083b80a2bd66ea051521b0ed?pvs=21)
+[LEKEYE Drain Hair Catcher](https://www.amazon.com/LEKEYE-Catcher-Strainer-Stainless-Protector-Silver/dp/B07SG474HG/ref=sr_1_5?crid=381J0D2ZIP75D&dib=eyJ2IjoiMSJ9.jDBvaTdcrQdf25sVx5OB76BbYoRNnaLztma5v4ydOLR5ku7CnPWdrdWpkCBtqdquNfKnlV0fLGxSgyD7uXkVlskxL0X7gt09bxbMnKfDIxEARmFSiDb4pJp-llGfxYl3Sd83OShkBW1SKFyIG_EH_ryyO5EavxTfiYJSMAt12fI-tdhEJsCVbUQzmUM06X_X9nEnblI3Q-bUVCwtjjXZiIZm2glNwi6PY5XK8Gm96cTbfMshcW3Fxs8GXeAcgnKpzNEflOnAsvtcwakhNMlz1pJJK833Zv8T6BVtPUBLlg14z79lPKUpqYAgeMRx4cBqRPxZ5XA9kx_UYoAqChvChHHFHs4_2gISmJIG_oFLU8FPOZFrbfv3DDqdkOkoIPPsCTLF-vC3vnvgopyUzlfzD86lUckZaX3vKnVQN_VU0_yqGIyWV6hXidkzmjj4bkSt.MlDobtwEfF0CK0aNGy0WR9myoHhw95gwOKIT8uVbSEM&dib_tag=se&keywords=LEKEYE%2BDrain%2BHair%2BCatcher%2FBathtub%2BDrain%2BCover%2FDrain%2BProtector%2Bfor%2BPop-Up%2B%26%2BRegular%2BDrains(Patented%2BProduct)&qid=1740002829&sprefix=lekeye%2Bdrain%2Bhair%2Bcatcher%2Fbathtub%2Bdrain%2Bcover%2Fdrain%2Bprotector%2Bfor%2Bpop-up%2B%26%2Bregular%2Bdrains%2Bpatented%2Bproduct%2B%2Caps%2C225&sr=8-5&th=1)      
+[Village Naturals Therapy Body Wash](https://www.amazon.com/Village-Naturals-Therapy-Muscle-Foaming/dp/B00J2ZLSBY)     
+[SparkPod 23-Stage Shower Filter](https://www.amazon.com/dp/B07SSVZHBZ?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)     
+[HammerHead Handheld Bidet](https://www.amazon.com/dp/B086WKH43D?ref=ppx_yo2ov_dt_b_fed_asin_title)   
+[SparkPod Ultra Shower Filter](https://www.amazon.com/dp/B0B42C1Z27?ref=ppx_yo2ov_dt_b_fed_asin_title)      
+[YASONIC Corner Shower Caddy](https://www.amazon.com/dp/B0BB7PBPC3?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)       
+[Delta 3-Way Shower Diverter](https://www.amazon.com/dp/B0064TXMJM?ref=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&ref_=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&social_share=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&starsLeft=1&th=1)        
 
 
 ## Bed    
