@@ -99,6 +99,8 @@
 [Ezekiel Bread](https://www.foodforlife.com/about_us/ezekiel-49)    
 
 ## Home     
+
+### Companies   
 - [Miele](https://www.miele.com/) (Germany)    
 - [Dualit](https://www.dualit.com/) (UK)   
 - [Bosch Home](https://www.bosch-home.com/us/) (Germany)   
@@ -116,7 +118,18 @@
 - [Knipex](https://www.knipex-tools.com/) (Germany)   
 - [Makita](https://www.makitatools.com/) (Japan)   
 - [Rockwell](https://getrockwell.com/) (USA)
+
+### Products   
+- [Amico 25 Pack Recessed Ceiling Light](https://www.amazon.com/Amico-Recessed-Selectable-Ultra-Thin-Downlight/dp/B0D2H9K5QP/ref=sr_1_5?crid=29WIQ9Q5SX62S&dib=eyJ2IjoiMSJ9.khHk3H-2ixshXIXf0xmXgoQUkTK2-8RbSk2LPSeSJ5OtWDtnvTRtG-WaXjN2FiBydDAGXXXD8a8x3rnBvb43cTR0-rc2lAz1izSbESRI2KESpvjBY01zCZ8J7ElcXndzspMYWuLA_aQ7HS80KL6JbWHJskRfPyZuzXk463LL8p_Yc5VGHZIA2gzP6o5YX1Vdi7uImtaizw-3SqzV2WO_O3RblYZA_uiVPgCcriA7lN97EAu6VV6cQ5rCrCuk_g8sDhQeucJy43yDkbHwfNyFe37kBu7wjT6EYc7MxYZfrcDmT9SKU9GtvKhLTLT1ZoWOmWvv5pw6YUmtpzaSksocYX5nkwQwn-6_d8uY_RAN4ZfevRCLL3K57RAbpcjl_ioxtWRweUlcFP22JQB0r0_r3h7ySv-FgYy7zQe9JAhNw2Dq8wfbWFf1C5Sqp8JyrzpA.-su4W7XVzq2uZ1uy84wHZZ8r7GFCvatosJLkTNR29JM&dib_tag=se&keywords=Amico%2B24%2BPack%2B6%2BInch%2B5CCT%2BLED%2BRecessed%2BCeiling%2BLight%2Bwith%2BNight%2BLight%2C%2B2700K%2F3000K%2F3500K%2F4000K%2F5000K%2BSelectable%2BUltra-Thin%2BRecessed%2BLighting%2C%2B12W%3D110W%2C%2B1100LM%2C%2BDimmable%2BCanless%2BWafer%2BDownlight%2BETL%26FCC&qid=1740002918&sprefix=amico%2B24%2Bpack%2B6%2Binch%2B5cct%2Bled%2Brecessed%2Bceiling%2Blight%2Bwith%2Bnight%2Blight%2C%2B2700k%2F3000k%2F3500k%2F4000k%2F5000k%2Bselectable%2Bultra-thin%2Brecessed%2Blighting%2C%2B12w%2B110w%2C%2B1100lm%2C%2Bdimmable%2Bcanless%2Bwafer%2Bdownlight%2Betl%26fcc%2Caps%2C123&sr=8-5&th=1)
+- [Table Protector](https://www.amazon.com/LovePads-1-5mm-Protector-Dining-Plastic/dp/B0794R66XC/ref=sr_1_5?crid=JXJD85N757LW&dib=eyJ2IjoiMSJ9.SCV9VkwmSUk2uNCcn_ckbsGWz07eGmn5hgRM28fKNGMiJJbVkedzwQ8oPES8AiEutVqLoAaiGIfC4gfOFMJu6gC9ACBSV6jImGOI4vY3YkpcCVFc8Sb_NCaH-y52LxYBHj5bbBb8tJEtbXb89EG_denkwZlOQeIqInMyqu-hXQRqvCtwDK8k3uUTyAZ83eNaeIJmeb6j9WO3PkJUgF5wcCVHrGjkY24hbYiVmgtIyWpyKwxeQ5-ed2oNG-v8yHRZgaes1DW5Rmqqv000Ft6tGqJwm2UkPPhf7z65jt1lFl76ypwdN-MV5UwPU1GFiZb9hDEv1jRGb_LfZRYOokcaZYwqHVIGdkPHpG_oYxc6SOncdPFHmeeQQSJZWu6McWbhQ1DXM6qhSGonomx_JO_79V78iGm-qNXmaxfeuI_fGI9QUcnkbVnW7Z7pl9M1_bR3.C53xFxDFwEekiUj0gW0Wy4aN_TaiGzchm534YD7IoEI&dib_tag=se&keywords=lovepads%2B1.5mm%2Bthick%2Bclear%2Btable%2Bcover&qid=1739488173&sprefix=lovepads%2B%2Caps%2C123&sr=8-5&th=1)
+- [Foam Pipe Insulation](https://www.lowes.com/pd/Frost-King-0-75-in-x-6-ft-Foam-Plumbing-Tubular-Pipe-Insulation/1001089480?gStoreCode=1898&gQT=1)     
+- [Gaps and Cracks Insulating Spray](https://www.homedepot.com/p/GREAT-STUFF-12-oz-Gaps-and-Cracks-Insulating-Spray-Foam-Sealant-227112/202893728#overlay)
+- [Lasko Tower Fan](https://www.amazon.com/Lasko-Space-Heater-Combo-FH500/dp/B07QHG97RZ?th=1)
+- [Cabinet Door & Drawer Hardware Installation Template Kit](https://www.amazon.com/dp/B0968XCRMG?ref_=cm_sw_r_apan_dp_0J8C0BT44088S1CVT6GB)
+- [Megaloc 8 oz. Pipe Thread Sealant](https://www.homedepot.com/p/Hercules-Megaloc-8-oz-Pipe-Thread-Sealant-158062/100153125#overlay)
+- [Maz-Tek Motion Plug-in Nightlight](https://www.amazon.com/MAZ-TEK-Dimmable-Nightlight-Adjustable-Brightness/dp/B09KYB1SWK/ref=sr_1_6?crid=6ML2WG4HSBOY&dib=eyJ2IjoiMSJ9.VcOFQ0xHTBcrAjg5d_90XY3M-cPimQuMMfVYcYRsh1FkYWuzRkfzuHUNlQ_eBdMv1tbWHCVVpedPxxLj44K8fCBWV-7zjeUBVqS3LdWG4IS1fTs5ToH5zldfC94hRTvSPxUxCP8MilBqYY5JUe9Ixtg4zqyvmZeGnLO8_4NrWyzNXqbizUHE6jt-IvUMBqt9cjNCWkpuCNjxxK1OhF0_iQnermbZzmz08_RMxOgfd6atZ5T8W5EKfNU-HAABtENPbe0FhoGVrsRak9cHc-jlrC-KdUeP7wD54I0CCmDzoR2vFW4ZWLfYWBfEWZ_KQTUCZ75r0g9e5ZK2f_3PqX2GytcKPBiePLiWkcE4Gn_fMJCYe-BnISoMorSKQ1CMxCH4zTiHt-dYGvuhaGFhaYSc27QJ5Eef8hYT4yusBaH_uidD2zXjMISA9_bdRq9MxkxH.Cf2WYmsV242IgT6kXJPSu7KFp1dks-aE69Fv027PJNg&dib_tag=se&keywords=MAZ-TEK+Plug+in+Motion+Sensor+Dimmable+Night+Light%2C+Soft+Warm+White+LED+Nightlight+with+Dusk+to+Dawn+Motion+Sensor%2C+Adjustable+Brightness+for+Bedroom%2C+Bathroom%2C+Kitchen%2C+Hallway%2C+Stairs%2C2+Pack&qid=1740005275&sprefix=maz-tek+plug+in+motion+sensor+dimmable+night+light%2C+soft+warm+white+led+nightlight+with+dusk+to+dawn+motion+sensor%2C+adjustable+brightness+for+bedroom%2C+bathroom%2C+kitchen%2C+hallway%2C+stairs%2C2+pack%2Caps%2C137&sr=8-6)
 - 
+
 ## Kitchen  
 - [Le Creuset](https://www.lecreuset.com/) (France)   
 - [De Buyer](https://www.debuyer.com/) (France)   
