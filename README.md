@@ -74,14 +74,18 @@
 ## Bath    
 
 ### Products      
-[LEKEYE Drain Hair Catcher](https://www.amazon.com/LEKEYE-Catcher-Strainer-Stainless-Protector-Silver/dp/B07SG474HG/ref=sr_1_5?crid=381J0D2ZIP75D&dib=eyJ2IjoiMSJ9.jDBvaTdcrQdf25sVx5OB76BbYoRNnaLztma5v4ydOLR5ku7CnPWdrdWpkCBtqdquNfKnlV0fLGxSgyD7uXkVlskxL0X7gt09bxbMnKfDIxEARmFSiDb4pJp-llGfxYl3Sd83OShkBW1SKFyIG_EH_ryyO5EavxTfiYJSMAt12fI-tdhEJsCVbUQzmUM06X_X9nEnblI3Q-bUVCwtjjXZiIZm2glNwi6PY5XK8Gm96cTbfMshcW3Fxs8GXeAcgnKpzNEflOnAsvtcwakhNMlz1pJJK833Zv8T6BVtPUBLlg14z79lPKUpqYAgeMRx4cBqRPxZ5XA9kx_UYoAqChvChHHFHs4_2gISmJIG_oFLU8FPOZFrbfv3DDqdkOkoIPPsCTLF-vC3vnvgopyUzlfzD86lUckZaX3vKnVQN_VU0_yqGIyWV6hXidkzmjj4bkSt.MlDobtwEfF0CK0aNGy0WR9myoHhw95gwOKIT8uVbSEM&dib_tag=se&keywords=LEKEYE%2BDrain%2BHair%2BCatcher%2FBathtub%2BDrain%2BCover%2FDrain%2BProtector%2Bfor%2BPop-Up%2B%26%2BRegular%2BDrains(Patented%2BProduct)&qid=1740002829&sprefix=lekeye%2Bdrain%2Bhair%2Bcatcher%2Fbathtub%2Bdrain%2Bcover%2Fdrain%2Bprotector%2Bfor%2Bpop-up%2B%26%2Bregular%2Bdrains%2Bpatented%2Bproduct%2B%2Caps%2C225&sr=8-5&th=1)      
-[Village Naturals Therapy Body Wash](https://www.amazon.com/Village-Naturals-Therapy-Muscle-Foaming/dp/B00J2ZLSBY)     
-[SparkPod 23-Stage Shower Filter](https://www.amazon.com/dp/B07SSVZHBZ?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)     
-[HammerHead Handheld Bidet](https://www.amazon.com/dp/B086WKH43D?ref=ppx_yo2ov_dt_b_fed_asin_title)   
-[SparkPod Ultra Shower Filter](https://www.amazon.com/dp/B0B42C1Z27?ref=ppx_yo2ov_dt_b_fed_asin_title)      
-[YASONIC Corner Shower Caddy](https://www.amazon.com/dp/B0BB7PBPC3?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)       
-[Delta 3-Way Shower Diverter](https://www.amazon.com/dp/B0064TXMJM?ref=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&ref_=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&social_share=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&starsLeft=1&th=1)        
-
+- [LEKEYE Drain Hair Catcher](https://www.amazon.com/LEKEYE-Catcher-Strainer-Stainless-Protector-Silver/dp/B07SG474HG/ref=sr_1_5?crid=381J0D2ZIP75D&dib=eyJ2IjoiMSJ9.jDBvaTdcrQdf25sVx5OB76BbYoRNnaLztma5v4ydOLR5ku7CnPWdrdWpkCBtqdquNfKnlV0fLGxSgyD7uXkVlskxL0X7gt09bxbMnKfDIxEARmFSiDb4pJp-llGfxYl3Sd83OShkBW1SKFyIG_EH_ryyO5EavxTfiYJSMAt12fI-tdhEJsCVbUQzmUM06X_X9nEnblI3Q-bUVCwtjjXZiIZm2glNwi6PY5XK8Gm96cTbfMshcW3Fxs8GXeAcgnKpzNEflOnAsvtcwakhNMlz1pJJK833Zv8T6BVtPUBLlg14z79lPKUpqYAgeMRx4cBqRPxZ5XA9kx_UYoAqChvChHHFHs4_2gISmJIG_oFLU8FPOZFrbfv3DDqdkOkoIPPsCTLF-vC3vnvgopyUzlfzD86lUckZaX3vKnVQN_VU0_yqGIyWV6hXidkzmjj4bkSt.MlDobtwEfF0CK0aNGy0WR9myoHhw95gwOKIT8uVbSEM&dib_tag=se&keywords=LEKEYE%2BDrain%2BHair%2BCatcher%2FBathtub%2BDrain%2BCover%2FDrain%2BProtector%2Bfor%2BPop-Up%2B%26%2BRegular%2BDrains(Patented%2BProduct)&qid=1740002829&sprefix=lekeye%2Bdrain%2Bhair%2Bcatcher%2Fbathtub%2Bdrain%2Bcover%2Fdrain%2Bprotector%2Bfor%2Bpop-up%2B%26%2Bregular%2Bdrains%2Bpatented%2Bproduct%2B%2Caps%2C225&sr=8-5&th=1)      
+- [Village Naturals Therapy Body Wash](https://www.amazon.com/Village-Naturals-Therapy-Muscle-Foaming/dp/B00J2ZLSBY)     
+- [SparkPod 23-Stage Shower Filter](https://www.amazon.com/dp/B07SSVZHBZ?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)     
+- [HammerHead Handheld Bidet](https://www.amazon.com/dp/B086WKH43D?ref=ppx_yo2ov_dt_b_fed_asin_title)   
+- [SparkPod Ultra Shower Filter](https://www.amazon.com/dp/B0B42C1Z27?ref=ppx_yo2ov_dt_b_fed_asin_title)      
+- [YASONIC Corner Shower Caddy](https://www.amazon.com/dp/B0BB7PBPC3?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)       
+- [Delta 3-Way Shower Diverter](https://www.amazon.com/dp/B0064TXMJM?ref=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&ref_=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&social_share=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&starsLeft=1&th=1)
+- [Delta Showerhead](https://www.amazon.com/dp/B0CLPXLKBG?ref=cm_sw_r_apan_dp_54V46N1P915RKT8Q2FRG&ref_=cm_sw_r_apan_dp_54V46N1P915RKT8Q2FRG&social_share=cm_sw_r_apan_dp_54V46N1P915RKT8Q2FRG&peakEvent=5&starsLeft=1&skipTwisterOG=1&th=1)   
+- [Zalerock Showerhead](https://www.homedepot.com/p/Zalerock-Rainfall-1-Spray-Square-10-in-Shower-System-Shower-Head-with-Handheld-in-Chrome-Valve-Included-KSA021/319582987)
+- [Zalerock Showerhead (2)](https://www.homedepot.com/p/Zalerock-Rain-Square-Single-Handle-1-Spray-Shower-Faucet-1-8-GPM-w-Valve-12in-Dual-Shower-Heads-Shower-System-in-Brushed-Nickel-HAZ012/319859199)   
+- [Pinwin Showerhead](https://www.amazon.com/dp/B09D39JFYB?ref_=cm_sw_r_apan_dp_4RNNY109E5XKXEQ7DNMM&language=en-US&th=1)
+- [Delta Faucet Shower Arm Diverter for Hand Shower](https://www.amazon.com/dp/B0064TXLHA?ref=cm_sw_r_apan_dp_JBFCMF2KMTNG1GQAGEXN&ref_=cm_sw_r_apan_dp_JBFCMF2KMTNG1GQAGEXN&social_share=cm_sw_r_apan_dp_JBFCMF2KMTNG1GQAGEXN&peakEvent=5&starsLeft=1&skipTwisterOG=1&th=1)    
 
 ## Bed    
 ### Products    
@@ -142,7 +146,15 @@
 - [Wall Texture](https://www.homedepot.com/p/Homax-10-oz-Flat-White-Water-Based-Knockdown-Spray-Texture-4060-06/100145784?source=shoppingads&locale=en-US&srsltid=AfmBOooLiqE7BHVctqzQ-hwMjS0fdwAmM2eOqM4EEKoq-G52huzgLcwVmFI&gQT=1)
 -  [CHI Steam Iron](https://www.amazon.com/CHI-13101-Steam-Soleplate-Professional/dp/B071RRKXYT?source=ps-sl-shoppingads-lpcontext&ref_=fplfs&smid=ATVPDKIKX0DER&gQT=1&th=1)
 -  [Rowenta Steam Iron](https://www.amazon.com/Rowenta-Stainless-Soleplate-Precision-Auto-Off/dp/B09CQFR9T6/ref=sr_1_6?crid=132G36J7YQ5W0&dib=eyJ2IjoiMSJ9.btZS70WY5s--aRSvptGN9XbNAbeu5vqJ59kVk6odnl_y5bWV1WYFCwYUo4dWDLxmGcGvAkD5gGz7H4-QiwtQyZrBMQ2mE76d4U-UMVqf7djZ63L-OSL0MM6ACYb3swQHKaUyy3_HS_ZSjq4w2zQOl7GGq6JYvc9TwJkJxBh-suXF7gliHn-AMc7ba7xKEfrPK2r1emqnZxegz7AXuU1eazP8K44W2jU1utEz4myDbeE.yDL4sE6c1XUnPgafjOobRUeslRDPgeTrxro6ZT_CYXE&dib_tag=se&keywords=rowenta%2Bsteamer%2Biron&qid=1740011197&sprefix=rowenta%2Bsteamer%2Biron%2Caps%2C155&sr=8-6&th=1)
--  [900 Lumen Ceiling Light](https://www.homedepot.com/p/Commercial-Electric-6-in-Canless-Adjustable-CCT-Integrated-LED-Recessed-Light-Trim-with-Night-Light-900-Lumens-New-Construction-Remodel-53828101/313658680)    
+-  [900 Lumen Ceiling Light](https://www.homedepot.com/p/Commercial-Electric-6-in-Canless-Adjustable-CCT-Integrated-LED-Recessed-Light-Trim-with-Night-Light-900-Lumens-New-Construction-Remodel-53828101/313658680)
+-  [Drywall Toggle Anchor](https://www.homedepot.com/p/E-Z-Ancor-Toggle-Lock-100-lbs-Philips-Drywall-Screws-Anchors-10-Pack-25220/100153998?source=shoppingads&locale=en-US&pla&mtc=SHOPPING-CM-CML-GGL-D25H-025_003_FASTENERS-NA-MULTI-NA-PMAX-5762521-NA-NA-NA-NBR-NA-NA-NA-Fasteners&cm_mmc=SHOPPING-CM-CML-GGL-D25H-025_003_FASTENERS-NA-MULTI-NA-PMAX-5762521-NA-NA-NA-NBR-NA-NA-NA-Fasteners-71700000113957445--&gad_source=1&gclid=Cj0KCQjw5cOwBhCiARIsAJ5njuYzdFyEz81vn8Orzliw329BTDCj36Ju0AdOU24jhJDi5Ls1ASXtdv4aAicrEALw_wcB&gclsrc=aw.ds)
+- [Assorted length Toggle Bolt Drywall Anchors with Screws](https://www.lowes.com/pd/TOGGLER-2-Pack-Assorted-Length-x-3-16-in-Dia-Toggle-Bolt-Drywall-Anchor-Screws-Included/3183813?cm_mmc=shp-_-c-_-prd-_-hdw-_-ggl-_-CRP_SHP_LIA_HDW_Online_E-F-_-3183813-_-local-_-0-_-0&gad_source=1&gclid=Cj0KCQjw5cOwBhCiARIsAJ5njuZR95md3CwM3J6JzR2RKjOP_tY97TBnG8wA9S3B060G9VND7g8YYgUaAowpEALw_wcB&gclsrc=aw.ds)
+- [Zinc-Alloy Long Lag Shields Anchor](https://www.homedepot.com/p/3-8-in-x-2-1-2-in-Zinc-Alloy-Long-Lag-Shields-10-Pack-803612/204273402)
+- [Self Leveling Sealant](https://www.amazon.com/polyurethane-accelerated-horizontal-expansion-Cartridge/dp/B000KKOO5M?crid=8580QXM2K7AC&keywords=Sikaflex%2BSelf-Leveling%2BSealant&qid=1647957060&sbo=RZvfv%2F%2FHxDF%2BO5021pAnSA%3D%3D&sprefix=sikaflex%2Bself-leveling%2Bsealant%2Caps%2C75&sr=8-4&th=1&linkCode=sl1&tag=riseofthegent-20&linkId=770e8d178253721917ec62ff71721746&language=en_US&ref_=as_li_ss_tl)
+- [Elfa Cabinet-Sized Mesh Closet Drawers](https://www.containerstore.com/s/elfa/best-selling-solutions/drawer-units/elfa-cabinet-closet-drawers/123d?productId=11021262)
+- [Plastic Waste Container](https://www.amazon.com/Hardware-Resources-CAN-50W-Plastic-Container/dp/B008ALEYLM/ref=sr_1_6?crid=3CXZ28LW0OFBL&keywords=plastic%2Btrash%2Bcan%2Bkitchen%2Bno%2Blid&qid=1676065803&sprefix=plastic%2Btrash%2Bcan%2Bkitchen%2Caps%2C124&sr=8-6&th=1)
+- [Roof Rain Collar Flashing](https://www.amazon.com/Oatey-14135-collar-No-Calk-Flashing/dp/B0069KAN4I/ref=as_li_ss_tl?keywords=rubber+gasket+roof+vent&qid=1568138993&s=office-products&sr=1-7-catcorr&linkCode=sl1&tag=hisldousent-20&linkId=aaad188863331fd6f9fd96fa5b4a56f6)
+- [Self-Leveling Lap Sealant](https://www.amazon.com/Dicor-Corporation-501LSB-1-Epdm-Black/dp/B019QHAQ9M/ref=as_li_ss_tl?keywords=lap%2Bsealant%2Bfor%2Brv%2Broofs&pd_rd_r=447b129f-9e7a-4421-88e0-0eb839b5c7dd&pd_rd_w=aJep5&pd_rd_wg=6i9wm&pf_rd_p=67c9d84c-d98a-4415-a549-dd3360e9d207&pf_rd_r=FWPZC5X63JVT6M599WTY&qid=1568139205&s=gateway&sr=8-41&linkCode=sl1&tag=hisldousent-20&linkId=81d8a6774fa7d1139237a41f77fe79be&th=1)   
 
 ## Kitchen  
 
@@ -170,6 +182,8 @@
 - [Stainless Steel Protector for Sink](https://www.amazon.com/dp/B0D7ZSTYNN?ref=cm_sw_r_apan_dp_JQ8P22SGZVVFP1FKQA2K&ref_=cm_sw_r_apan_dp_JQ8P22SGZVVFP1FKQA2K&social_share=cm_sw_r_apan_dp_JQ8P22SGZVVFP1FKQA2K&starsLeft=1&th=1)
 - [OXO Containers](https://www.oxo.com/shop/kitchenware/pop-containers.html)
 - [OXO Ice Cream Scoop](https://www.amazon.com/OXO-Grips-Classic-Cream-Scoop/dp/B08Q2CQSC9/ref=asc_df_B08Q2CQSC9?mcid=7b9fd6fc2b05373b9f086b1f55d171aa&tag=hyprod-20&linkCode=df0&hvadid=693711673828&hvpos=&hvnetw=g&hvrand=10796465786049499769&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-1196259999486&th=1)
+- [Faucet and Sink Installer](https://www.amazon.com/Installer-1%EF%BC%89Multi-purpose-Plumbing-Bathroom-Installation/dp/B07SRYS4N4/ref=asc_df_B07SRYS4N4?mcid=56476c4ab86e3080aedda994ea004542&tag=hyprod-20&linkCode=df0&hvadid=693270340293&hvpos=&hvnetw=g&hvrand=11377639199915813751&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027776&hvtargid=pla-874006351648&th=1)     
+- [Heavy Duty Degreaser](https://www.amazon.com/dp/B077NPFTGR?ref=cm_sw_r_apan_dp_35S82CANH4GV8WR5CEYS&ref_=cm_sw_r_apan_dp_35S82CANH4GV8WR5CEYS&social_share=cm_sw_r_apan_dp_35S82CANH4GV8WR5CEYS&starsLeft=1&th=1)   
 
 **Smoothie Makers (Not Tested)**
 - [Reemix Smoothie Maker](https://www.amazon.com/Reemix-Smoothie-Professional-Container-Stainless/dp/B0BK8QWHYD)
@@ -183,7 +197,10 @@
 
 ## Personal  
 
-[10-Slot Watch Case](https://www.amazon.com/dp/B0B8SDHPMR?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
+- [10-Slot Watch Case](https://www.amazon.com/dp/B0B8SDHPMR?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
+- [Nose & Ear Hair Trimmer](https://www.amazon.com/Groom-Mate-Platinum-Nose-Trimmer/dp/B000EBFJXS/ref=sr_1_5?crid=M98KCQI9LAWX&dib=eyJ2IjoiMSJ9.beyjyA450EibcAnUXcmgyxm_JbR8uHMzYXbwigCXsodT5n5miZrr-5jhtmydFBSf_9wl3bB_cvH0PWzXTfA1thE0M_BAg6iJ6GR_pfGr3kbSOPPQYp6hIOUnoSFdIPokt4-J16TDNz0_l9_rJ2oQ68CTfyW3ezdZj1TfjRgQqBFdYxHUQNm9pN5JfD8MUYc-2fAZ5te_olD0tmJ92Uj7G509HFOg7I06ZDhl8DDxM4lej1lupY2a37oeVwZQSkx0mdGMJm-v3-BQcafnDbk25kj4YTa3rfnhv4wXhqIzX47_YxO3J9pJ3xoXEEQMAtDjoXRvYssWU8SyhfQo104bVo6-LJnJzIwNJnVbSjI6yPrU225uiYEEEkXHS-qI_Me2iPaN5pb1HpWSpG-OuA2zZXdeqYXV2iJXvunpQvMAFPPoVbX6UFGNTk5CEfymXyjC.WC_fPMoooBj_WQOT7Pz2WQ40M1eLtpy2KQPN00clIhw&dib_tag=se&keywords=groom+mate&qid=1739327194&sprefix=groom+mate%2Caps%2C121&sr=8-5#customerReviews)
+- [Double Edge Safety Razor Blades](https://www.amazon.com/Feather-Double-Edge-Razor-Blades/dp/B001G5HZCY/ref=sr_1_6?crid=1ECY42EK9IJ14&dib=eyJ2IjoiMSJ9.KPSLBHcSH6qwZJKnH8FA1RXRmvYClNs-B-5WtLmF7mMet4lijm3rI-loqk52_flMG-bN5oKvXIS0qJY9ZWfUuvaYfYOaEz8WPL0-SejrC4mYoJdIJobJtz1yA4pKZklfKXp7nQ0WZvzOWVgL1g1XBIaPuqQPb7e2fcYIMKIM9DtbviHRtPfPdakiUPPgyVE2pl7mis1sMWmMt2IBKkGRnEtAQsJQVADfmI4FNwcia1aZz_P4kdwcQrFqJVU9Xw5DFeq2OP0OAyt7lcRWWZB9zfzYJzAf7wKqfIvgDzLnL8iAZ2wcKx5fxgLT3BSUunTedcPAOGdtQnVfRwzrxHdXhVka45rzAMl-uEmdzcMzURtVBuVilD0q5sm8udgLjK25xWHVA1t9Tu7h9DHjBwaLdiKHCPGOWfDhPLh8kmrxw02wqBFYbXmRVsUJhntKaE8N.Ib5d-G_6soe2En8DtRnu57XCPnp0fij5WEXEJ5VLLVY&dib_tag=se&keywords=feather+blades&qid=1738879667&sprefix=feather+blade%2Caps%2C139&sr=8-6)    
+
 
 ## Pest Control  
 
@@ -192,9 +209,10 @@
 
 ## Sprinkler System  
 
-- [Hunter Pop-up Body w/ Check Valve](https://www.ewingoutdoorsupply.com/44011340-pro-spray-4-in-pop-up-body-w-check-valve)  
+- [Hunter Pop-up Body w/ Check Valve](https://www.ewingoutdoorsupply.com/44011340-pro-spray-4-in-pop-up-body-w-check-valve)    
 - [Gorilla Easy Connect for Pipes](https://www.homedepot.com/b/Outdoors-Garden-Center-Watering-Irrigation-Watering-Essentials-Hose-Connectors/GORILLA-EASY-CONNECT/N-5yc1vZbx5nZyln)
-- [Watts Pressure Vacuum Breaker](https://www.homedepot.com/p/Watts-1-in-Pressure-Vacuum-Breaker-800M4-QT/100023435)    
+- [Watts Pressure Vacuum Breaker](https://www.homedepot.com/p/Watts-1-in-Pressure-Vacuum-Breaker-800M4-QT/100023435)
+- [Gardern Hose Quick Connector](https://www.amazon.com/dp/B086PZG7S6?ref=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&ref_=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&social_share=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&starsLeft=1&skipTwisterOG=1&newOGT=1&th=1)    
 
 ## Tech  
 
@@ -205,6 +223,10 @@
 [amFilm Screen Protector](https://www.amazon.com/amFilm-OneTouch-Protector-Auto-Alignment-Protection/dp/B0CQJYD4NP?ref_=ast_sto_dp&th=1)         
 
 ## Tools
+
+[Dewalt 20V MAX XR 1/2 Cordless Hammer DCD1007B](https://www.amazon.com/DEWALT-Cordless-Hammer-Drill-DCD1007B/dp/B0D8TM5MW4#customerReviews)     
+[DEWALT XR POWER DETECT 1/2-in DCD998W1](https://www.lowes.com/pd/DEWALT-XR-POWER-DETECT-1-2-in-20-Volt-Max-Variable-Speed-Brushless-Cordless-Hammer-Drill-1-Battery-Included/1002097694)   
+
 
 ## Yard    
 
