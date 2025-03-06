@@ -241,7 +241,7 @@
 [Southern Ag Surfactant for Herbicides](https://www.amazon.com/Southern-Ag-Surfactant-Herbicides-Non-Ionic/dp/B004XDHRCE/ref=asc_df_B004XDHRCE?mcid=263de240390c3aa3b68aaa00457cf414&tag=hyprod-20&linkCode=df0&hvadid=693713553292&hvpos=&hvnetw=g&hvrand=5493298058360403992&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-329402406474&th=1)    
 
 ## Tools    
-### Products      
+### Companies         
 - [Knipex](https://www.knipex-tools.com/) (Germany)
 - [Makita](https://www.makitatools.com/) (Japan)
 - [Rockwell](https://getrockwell.com/) (USA)
