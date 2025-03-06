@@ -13,6 +13,7 @@
 ### [🐜 Pest Control](#Pest-Control)  
 ### [💦 Sprinkler System](#Sprinkler-System)  
 ### [📱 Tech](#Tech)  
+### [🔧 Tools](#Tools)   
 ### [🌿 Yard](#Yard)  
 
 ## Apparel
@@ -72,6 +73,7 @@
 
 ## Bath    
 
+### Products      
 [LEKEYE Drain Hair Catcher](https://www.amazon.com/LEKEYE-Catcher-Strainer-Stainless-Protector-Silver/dp/B07SG474HG/ref=sr_1_5?crid=381J0D2ZIP75D&dib=eyJ2IjoiMSJ9.jDBvaTdcrQdf25sVx5OB76BbYoRNnaLztma5v4ydOLR5ku7CnPWdrdWpkCBtqdquNfKnlV0fLGxSgyD7uXkVlskxL0X7gt09bxbMnKfDIxEARmFSiDb4pJp-llGfxYl3Sd83OShkBW1SKFyIG_EH_ryyO5EavxTfiYJSMAt12fI-tdhEJsCVbUQzmUM06X_X9nEnblI3Q-bUVCwtjjXZiIZm2glNwi6PY5XK8Gm96cTbfMshcW3Fxs8GXeAcgnKpzNEflOnAsvtcwakhNMlz1pJJK833Zv8T6BVtPUBLlg14z79lPKUpqYAgeMRx4cBqRPxZ5XA9kx_UYoAqChvChHHFHs4_2gISmJIG_oFLU8FPOZFrbfv3DDqdkOkoIPPsCTLF-vC3vnvgopyUzlfzD86lUckZaX3vKnVQN_VU0_yqGIyWV6hXidkzmjj4bkSt.MlDobtwEfF0CK0aNGy0WR9myoHhw95gwOKIT8uVbSEM&dib_tag=se&keywords=LEKEYE%2BDrain%2BHair%2BCatcher%2FBathtub%2BDrain%2BCover%2FDrain%2BProtector%2Bfor%2BPop-Up%2B%26%2BRegular%2BDrains(Patented%2BProduct)&qid=1740002829&sprefix=lekeye%2Bdrain%2Bhair%2Bcatcher%2Fbathtub%2Bdrain%2Bcover%2Fdrain%2Bprotector%2Bfor%2Bpop-up%2B%26%2Bregular%2Bdrains%2Bpatented%2Bproduct%2B%2Caps%2C225&sr=8-5&th=1)      
 [Village Naturals Therapy Body Wash](https://www.amazon.com/Village-Naturals-Therapy-Muscle-Foaming/dp/B00J2ZLSBY)     
 [SparkPod 23-Stage Shower Filter](https://www.amazon.com/dp/B07SSVZHBZ?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)     
@@ -82,18 +84,20 @@
 
 
 ## Bed    
-
+### Products    
 [California Design Den Bed Sheets](https://www.amazon.com/dp/B09X1N1F8Y?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
 [JUMMICO 360° Swivel Mirror](https://www.amazon.com/dp/B0CZ8DGDCD?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
 [Sorbus Floating Shelves](https://www.amazon.com/dp/B09P46SSZT?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
 
 ## Garage    
+### Products       
 
 [Clear High-Gloss Coating for Epoxy](https://www.homedepot.com/p/Rust-Oleum-EpoxyShield-90-oz-Clear-High-Gloss-2-Part-Epoxy-Interior-Low-VOC-Premium-Concrete-Garage-Floor-Paint-Top-Coat-Kit-365188/314107317)    
 [1 Car Garage Epoxy Kit](https://www.homedepot.com/p/Rust-Oleum-EpoxyShield-240-oz-Gray-Epoxy-1-Car-Garage-Floor-Kit-365187/314107168#overlay)     
 
 ## Grocery    
 
+### Products       
 [Saltverk](https://saltverk.com/)    
 [Franklin's BBQ Sauce](https://shop.franklinbbq.com/products/franklin-barbecue-sauce?srsltid=AfmBOoqc27DZG6w2kAu314uN8FETdV3Vo7ndUfyw_jVcDbRrSvczvK_2)    
 [Ezekiel Bread](https://www.foodforlife.com/about_us/ezekiel-49)    
@@ -199,6 +203,8 @@
 [ESR Phone Magsafe Sticker](https://www.amazon.com/dp/B09BZ17JM7?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)   
 [ESR Car Mount](https://www.amazon.com/dp/B0B38P9TF8?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)     
 [amFilm Screen Protector](https://www.amazon.com/amFilm-OneTouch-Protector-Auto-Alignment-Protection/dp/B0CQJYD4NP?ref_=ast_sto_dp&th=1)         
+
+## Tools
 
 ## Yard    
 
