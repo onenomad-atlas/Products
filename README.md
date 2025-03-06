@@ -128,9 +128,21 @@
 - [Cabinet Door & Drawer Hardware Installation Template Kit](https://www.amazon.com/dp/B0968XCRMG?ref_=cm_sw_r_apan_dp_0J8C0BT44088S1CVT6GB)
 - [Megaloc 8 oz. Pipe Thread Sealant](https://www.homedepot.com/p/Hercules-Megaloc-8-oz-Pipe-Thread-Sealant-158062/100153125#overlay)
 - [Maz-Tek Motion Plug-in Nightlight](https://www.amazon.com/MAZ-TEK-Dimmable-Nightlight-Adjustable-Brightness/dp/B09KYB1SWK/ref=sr_1_6?crid=6ML2WG4HSBOY&dib=eyJ2IjoiMSJ9.VcOFQ0xHTBcrAjg5d_90XY3M-cPimQuMMfVYcYRsh1FkYWuzRkfzuHUNlQ_eBdMv1tbWHCVVpedPxxLj44K8fCBWV-7zjeUBVqS3LdWG4IS1fTs5ToH5zldfC94hRTvSPxUxCP8MilBqYY5JUe9Ixtg4zqyvmZeGnLO8_4NrWyzNXqbizUHE6jt-IvUMBqt9cjNCWkpuCNjxxK1OhF0_iQnermbZzmz08_RMxOgfd6atZ5T8W5EKfNU-HAABtENPbe0FhoGVrsRak9cHc-jlrC-KdUeP7wD54I0CCmDzoR2vFW4ZWLfYWBfEWZ_KQTUCZ75r0g9e5ZK2f_3PqX2GytcKPBiePLiWkcE4Gn_fMJCYe-BnISoMorSKQ1CMxCH4zTiHt-dYGvuhaGFhaYSc27QJ5Eef8hYT4yusBaH_uidD2zXjMISA9_bdRq9MxkxH.Cf2WYmsV242IgT6kXJPSu7KFp1dks-aE69Fv027PJNg&dib_tag=se&keywords=MAZ-TEK+Plug+in+Motion+Sensor+Dimmable+Night+Light%2C+Soft+Warm+White+LED+Nightlight+with+Dusk+to+Dawn+Motion+Sensor%2C+Adjustable+Brightness+for+Bedroom%2C+Bathroom%2C+Kitchen%2C+Hallway%2C+Stairs%2C2+Pack&qid=1740005275&sprefix=maz-tek+plug+in+motion+sensor+dimmable+night+light%2C+soft+warm+white+led+nightlight+with+dusk+to+dawn+motion+sensor%2C+adjustable+brightness+for+bedroom%2C+bathroom%2C+kitchen%2C+hallway%2C+stairs%2C2+pack%2Caps%2C137&sr=8-6)
-- 
+- [PVC Red Hot Blue Glue and Purple Primer](https://www.homedepot.com/p/Christy-s-8-oz-PVC-Red-Hot-Blue-Glue-and-Purple-Primer-Handy-Pack-RH-RHBV-HDYPK-H/205307011#overlay)
+- [StudBuddy](https://www.thestudbuddy.com/product/the-studbuddy/?srsltid=AfmBOopw1D7aP0r_2iUx7yEc6oWRYi4Ti1JVFXx3vVtjr55-qrkm94M-)
+- [Kasa Smart Dimmer Switch](https://www.amazon.com/Kasa-Smart-HS220P3-Certified-Required/dp/B07HGSCXB6/ref=sr_1_5?crid=1C1CZ6DHR1993&dib=eyJ2IjoiMSJ9.mawzjZHC_aw6rrcbg5HK2UlGdsJyP53bjsy3tanwPwFJehprCXpPz7fuHkBnlKl0-KMrmZmwjaf6KR8qM1TG7ecNaVJEw5ZZxm9KVh59ZeN267G3MBWF9XdBnt7eKdxQ7wttCVGPW1jOYaUTWAK2lNxu3JMuGjVrBHnYi_iPy5eVxWOn3OFPBj288QjhavYeG_ylNM2g3J_3xjwJ6M8PF-MVhys-2Eg5JZEPJhQIYbUqfdpQuFj5JLGC5pxK9QSgXJUtuBKxvGXc8RqWum-mBZwI3TvweNa0ui8bY2JZefGhmJiwaotZF8iJPNGT8sEXN8D1dzDa08Dk1dbIb27HylcyIeIRZB_GtEMgAISbb-Tuca9UlJOPNlKPfAOf7OTdAK1V5dvOhuRGrkc09mUCzRVnTZmoLA8oAeJ-Wy2JelzMDnvh4kqOdnpWriNlKTYU.-UMFl4EpwZwTRHtenIdm8qzpAcQtC86sY4sxLuNidys&dib_tag=se&keywords=kasa%2Bsmart%2Bswitch&qid=1740009515&sprefix=kasa%2B%2Caps%2C165&sr=8-5&th=1)
+- [Maz-tek Plug In Nightlight](https://www.amazon.com/dp/B08YR7CL9G?ref=ppx_yo2ov_dt_b_fed_asin_title)
+- [Kasa Smart Plug](https://www.amazon.com/Kasa-Smart-Required-Certified-EP10P2/dp/B091FXQQMQ/ref=sr_1_2?crid=1Q31CCHPIYFI3&dib=eyJ2IjoiMSJ9.GG0Eudp182jplbLiu_0PeQdh85-Sq7qXSYuaAZmF2LZnvzWGvJ6JKB7sR6LYsYoEqxN1EiE8r1zmYixOp0llE9w10OLUNE2uNcYM7ZJn4BBHHAdgFojhp_nJB9cPSBJ1mdQahWWabQVjXYfwxO3BwWoyhomn1-qgGuJOImvh3rgZtafsRcOTIch83AqPQ2H26BDOUETytrKFbX4etL1Ip7Ufjdg-hgrXtRyRHZvZk9K8sUCO0iyLNFGvxU4xiCt2ygc8SGjzivlZQzNXDnj2l0XKCFms4IKBOfmO7A7KuvE.J1oq6zFLcr_Q1qa04_7xaL3Ei2c1vvAkcz5kgfMhBco&dib_tag=se&keywords=kasa%2Bplug&qid=1740009678&sprefix=kasa%2Bpl%2Caps%2C135&sr=8-2&th=1)
+- [Carpet Protection Film](https://www.amazon.com/dp/B0D7HJM146?ref=cm_sw_r_apan_dp_0X0BBC1RFV1W7QBEJPY2&ref_=cm_sw_r_apan_dp_0X0BBC1RFV1W7QBEJPY2&social_share=cm_sw_r_apan_dp_0X0BBC1RFV1W7QBEJPY2&starsLeft=1&th=1)
+- [Concrete Anchors](https://www.lowes.com/pd/Cobra-15-Pack-1-3-4-in-x-5-16-in-Concrete-Anchors/1001314024)
+- [Wall Texture](https://www.homedepot.com/p/Homax-10-oz-Flat-White-Water-Based-Knockdown-Spray-Texture-4060-06/100145784?source=shoppingads&locale=en-US&srsltid=AfmBOooLiqE7BHVctqzQ-hwMjS0fdwAmM2eOqM4EEKoq-G52huzgLcwVmFI&gQT=1)
+-  [CHI Steam Iron](https://www.amazon.com/CHI-13101-Steam-Soleplate-Professional/dp/B071RRKXYT?source=ps-sl-shoppingads-lpcontext&ref_=fplfs&smid=ATVPDKIKX0DER&gQT=1&th=1)
+-  [Rowenta Steam Iron](https://www.amazon.com/Rowenta-Stainless-Soleplate-Precision-Auto-Off/dp/B09CQFR9T6/ref=sr_1_6?crid=132G36J7YQ5W0&dib=eyJ2IjoiMSJ9.btZS70WY5s--aRSvptGN9XbNAbeu5vqJ59kVk6odnl_y5bWV1WYFCwYUo4dWDLxmGcGvAkD5gGz7H4-QiwtQyZrBMQ2mE76d4U-UMVqf7djZ63L-OSL0MM6ACYb3swQHKaUyy3_HS_ZSjq4w2zQOl7GGq6JYvc9TwJkJxBh-suXF7gliHn-AMc7ba7xKEfrPK2r1emqnZxegz7AXuU1eazP8K44W2jU1utEz4myDbeE.yDL4sE6c1XUnPgafjOobRUeslRDPgeTrxro6ZT_CYXE&dib_tag=se&keywords=rowenta%2Bsteamer%2Biron&qid=1740011197&sprefix=rowenta%2Bsteamer%2Biron%2Caps%2C155&sr=8-6&th=1)
+-  [900 Lumen Ceiling Light](https://www.homedepot.com/p/Commercial-Electric-6-in-Canless-Adjustable-CCT-Integrated-LED-Recessed-Light-Trim-with-Night-Light-900-Lumens-New-Construction-Remodel-53828101/313658680)    
 
 ## Kitchen  
+
+### Companies 
 - [Le Creuset](https://www.lecreuset.com/) (France)   
 - [De Buyer](https://www.debuyer.com/) (France)   
 - [Fissler](https://www.fissler.com/) (Germany)   
@@ -143,8 +155,23 @@
 - [Shun](https://shun.kaiusa.com/) (Japan)  
 - [Hestan Culinary](https://hestanculinary.com/collections/best-sellers) (USA)   
 - [Mann Kitchen](https://mannkitchen.com/products/the-original-pepper-cannon-pepper-mill) (USA)   
-- [PK Grills](https://www.pkgrills.com/) (USA)   
-- 
+- [PK Grills](https://www.pkgrills.com/) (USA)
+  
+### Products 
+- [Grill Tongs](https://www.homedepot.com/p/Weber-Precision-Grill-Tongs-6768/317178669?source=shoppingads&locale=en-US&srsltid=AfmBOoqPoAwiIO-t6zgYzS6WnyS0ukijfQwdECOZIWun0X76Qnvg1gxYluk&gQT=2#overlay)
+- [Ice Cream Scoop](https://www.amazon.com/Zeroll-Original-Conductive-Aluminum-Release/dp/B0002U33RU/ref=asc_df_B0002U33RU?mcid=ceac575867a7307c99e3ca2fbac88879&tag=hyprod-20&linkCode=df0&hvadid=693071387716&hvpos=&hvnetw=g&hvrand=9660746868208320618&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027776&hvtargid=pla-305573577960&th=1)
+- [BBQ Skewers](https://www.amazon.com/Lavo-Home-Stainless-Mediterranean-Brazilian-Style/dp/B082J52FN9?th=1)
+- [Hamilton Beach Coffee Grinder](https://www.walmart.com/ip/Hamilton-Beach-Custom-Grind-Coffee-Grinder-14-Cups-Black-80393F/247410200?wmlspartner=wlpa&selectedSellerId=0&wl13=546&gclsrc=aw.ds&adid=22222222277247410200_117755028669_12420145346&wl0=&wl1=g&wl2=c&wl3=501107745824&wl4=pla-394283752452&wl5=1026744&wl6=&wl7=&wl8=&wl9=pla&wl10=8175035&wl11=local&wl12=247410200&veh=sem_LIA&gclsrc=aw.ds&gad_source=1&gclid=CjwKCAiAn9a9BhBtEiwAbKg6fumxUy2f3EGvAO5LnNOFugSaEYO3Qo7g9AUP7j3MSfsnyEaeXrN6oxoCCSwQAvD_BwE)
+- [Vitamix 5200](https://www.vitamix.com/us/en_us/shop/5200-standard-getting-started)
+- [Stainless Steel Protector for Sink](https://www.amazon.com/dp/B0D7ZSTYNN?ref=cm_sw_r_apan_dp_JQ8P22SGZVVFP1FKQA2K&ref_=cm_sw_r_apan_dp_JQ8P22SGZVVFP1FKQA2K&social_share=cm_sw_r_apan_dp_JQ8P22SGZVVFP1FKQA2K&starsLeft=1&th=1)
+- [OXO Containers](https://www.oxo.com/shop/kitchenware/pop-containers.html)
+- [OXO Ice Cream Scoop](https://www.amazon.com/OXO-Grips-Classic-Cream-Scoop/dp/B08Q2CQSC9/ref=asc_df_B08Q2CQSC9?mcid=7b9fd6fc2b05373b9f086b1f55d171aa&tag=hyprod-20&linkCode=df0&hvadid=693711673828&hvpos=&hvnetw=g&hvrand=10796465786049499769&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-1196259999486&th=1)
+
+**Smoothie Makers (Not Tested)**
+- [Reemix Smoothie Maker](https://www.amazon.com/Reemix-Smoothie-Professional-Container-Stainless/dp/B0BK8QWHYD)
+- [Ganiza Smoothie Maker](https://www.amazon.com/Ganiza-Smoothie-Smoothies-15-Piece-Nutritious/dp/B0CCDG91CS)
+- [Enfmay Smoothie Maker](https://www.amazon.com/Enfmay-Smoothie-Performance-Countdown-Container/dp/B0BR3Q5JP9/ref=asc_df_B0BR3Q5JP9?mcid=d931ee0dfb7f3bd0b322ba1304557aa4&tag=hyprod-20&linkCode=df0&hvadid=693770002448&hvpos=&hvnetw=g&hvrand=11182784531376750311&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-1965287026226&th=1)   
+   
 ## Medicine and Vitamins  
 
 [Probotics](https://www.amazon.com/dp/B0B9HRTJ3H?ref=ppx_yo2ov_dt_b_fed_asin_title)
@@ -161,8 +188,9 @@
 
 ## Sprinkler System  
 
-[Hunter Pop-up Body w/ Check Valve](https://www.ewingoutdoorsupply.com/44011340-pro-spray-4-in-pop-up-body-w-check-valve)   
-[Gorilla Easy Connect for Pipes](https://www.homedepot.com/b/Outdoors-Garden-Center-Watering-Irrigation-Watering-Essentials-Hose-Connectors/GORILLA-EASY-CONNECT/N-5yc1vZbx5nZyln)     
+- [Hunter Pop-up Body w/ Check Valve](https://www.ewingoutdoorsupply.com/44011340-pro-spray-4-in-pop-up-body-w-check-valve)  
+- [Gorilla Easy Connect for Pipes](https://www.homedepot.com/b/Outdoors-Garden-Center-Watering-Irrigation-Watering-Essentials-Hose-Connectors/GORILLA-EASY-CONNECT/N-5yc1vZbx5nZyln)
+- [Watts Pressure Vacuum Breaker](https://www.homedepot.com/p/Watts-1-in-Pressure-Vacuum-Breaker-800M4-QT/100023435)    
 
 ## Tech  
 
