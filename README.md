@@ -17,7 +17,7 @@
 
 ## Apparel
 
-**Companies**   
+### Companies   
 - [Portuguese Flannel](https://www.portugueseflannel.com/) (Portugal)   
 - [Naked and Famous](https://www.nakedandfamousdenim.com/) (Canada)   
 - [Uskees](https://uskees.com/) (UK)   
