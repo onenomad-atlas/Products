@@ -16,6 +16,8 @@
 ### [🌿 Yard](#Yard)  
 
 ## Apparel
+
+**Companies**   
 - [Portuguese Flannel](https://www.portugueseflannel.com/) (Portugal)   
 - [Naked and Famous](https://www.nakedandfamousdenim.com/) (Canada)   
 - [Uskees](https://uskees.com/) (UK)   
@@ -62,7 +64,7 @@
 - **YUSUF BHAI**
     - Imperial Valley
 
-- **SITES**   
+**SITES**   
   [Oriental Fragrance](https://www.oriental-fragrance.com/en/)   
   [Ajmal US](https://ajmalperfumeus.com/?srsltid=AfmBOoqUszccJ1xAiaZn4UIWcQYb0e4TNhRBia_gD0uMFdYjfcN4WBbu)   
   [myperfumesselectusa](https://www.myperfumesselectusa.com/)   
@@ -131,6 +133,9 @@
 - [PK Grills](https://www.pkgrills.com/) (USA)   
 - 
 ## Medicine and Vitamins  
+
+[Probotics](https://www.amazon.com/dp/B0B9HRTJ3H?ref=ppx_yo2ov_dt_b_fed_asin_title)
+[Men's Fermented Vitamins](https://ancientnutrition.com/products/mens-fermented-multi-60-count?srsltid=AfmBOoqTPeDCXy5X1VRG__wUm32dFIAQzNniYaKayZS7T4OFhxdhyzff&variant=32210157371462)   
 
 ## Personal  
 
