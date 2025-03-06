@@ -225,7 +225,12 @@
 ## Tools      
 ### Products        
 [Dewalt 20V MAX XR 1/2 Cordless Hammer DCD1007B](https://www.amazon.com/DEWALT-Cordless-Hammer-Drill-DCD1007B/dp/B0D8TM5MW4#customerReviews)     
-[DEWALT XR POWER DETECT 1/2-in DCD998W1](https://www.lowes.com/pd/DEWALT-XR-POWER-DETECT-1-2-in-20-Volt-Max-Variable-Speed-Brushless-Cordless-Hammer-Drill-1-Battery-Included/1002097694)   
+[DEWALT XR POWER DETECT 1/2-in DCD998W1](https://www.lowes.com/pd/DEWALT-XR-POWER-DETECT-1-2-in-20-Volt-Max-Variable-Speed-Brushless-Cordless-Hammer-Drill-1-Battery-Included/1002097694)     
+
+### Companies         
+- [Knipex](https://www.knipex-tools.com/) (Germany)    
+- [Makita](https://www.makitatools.com/) (Japan)    
+- [Rockwell](https://getrockwell.com/) (USA)     
 
 
 ## Yard      
@@ -238,10 +243,5 @@
 [Unger Professional 36” Nifty Nabber](https://www.amazon.com/Unger-Professional-Nifty-Nabber-36/dp/B0000V0AGS?source=ps-sl-shoppingads-lpcontext&ref_=fplfs&smid=ATVPDKIKX0DER&gQT=1&th=1)    
 [Square Catch Basin Drain](https://www.homedepot.com/p/NDS-9-in-Square-Catch-Basin-Drain-Kit-2-Opening-Basin-Black-Plastic-Grate-2-Outlet-Adapters-and-1-Outlet-Plug-4-Pack-900BKIT-4PK/313564960#overlay)     
 [Grampa's Weeder](https://www.amazon.com/Grampas-Weeder-CW-01-Original-Remover/dp/B001D1FFZA?source=ps-sl-shoppingads-lpcontext&ref_=fplfs&psc=1&smid=A3RXQF4NI8HCLF&gQT=1)    
-[Southern Ag Surfactant for Herbicides](https://www.amazon.com/Southern-Ag-Surfactant-Herbicides-Non-Ionic/dp/B004XDHRCE/ref=asc_df_B004XDHRCE?mcid=263de240390c3aa3b68aaa00457cf414&tag=hyprod-20&linkCode=df0&hvadid=693713553292&hvpos=&hvnetw=g&hvrand=5493298058360403992&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-329402406474&th=1)    
+[Southern Ag Surfactant for Herbicides](https://www.amazon.com/Southern-Ag-Surfactant-Herbicides-Non-Ionic/dp/B004XDHRCE/ref=asc_df_B004XDHRCE?mcid=263de240390c3aa3b68aaa00457cf414&tag=hyprod-20&linkCode=df0&hvadid=693713553292&hvpos=&hvnetw=g&hvrand=5493298058360403992&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-329402406474&th=1)      
 
-## Tools    
-### Companies         
-- [Knipex](https://www.knipex-tools.com/) (Germany)
-- [Makita](https://www.makitatools.com/) (Japan)
-- [Rockwell](https://getrockwell.com/) (USA)
