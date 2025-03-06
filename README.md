@@ -90,21 +90,21 @@
 ## Bed     
 
 ### Products     
-[California Design Den Bed Sheets](https://www.amazon.com/dp/B09X1N1F8Y?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
-[JUMMICO 360° Swivel Mirror](https://www.amazon.com/dp/B0CZ8DGDCD?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
-[Sorbus Floating Shelves](https://www.amazon.com/dp/B09P46SSZT?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
+- [California Design Den Bed Sheets](https://www.amazon.com/dp/B09X1N1F8Y?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
+- [JUMMICO 360° Swivel Mirror](https://www.amazon.com/dp/B0CZ8DGDCD?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
+- [Sorbus Floating Shelves](https://www.amazon.com/dp/B09P46SSZT?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
 
 ## Garage    
 ### Products        
-[Clear High-Gloss Coating for Epoxy](https://www.homedepot.com/p/Rust-Oleum-EpoxyShield-90-oz-Clear-High-Gloss-2-Part-Epoxy-Interior-Low-VOC-Premium-Concrete-Garage-Floor-Paint-Top-Coat-Kit-365188/314107317)    
-[1 Car Garage Epoxy Kit](https://www.homedepot.com/p/Rust-Oleum-EpoxyShield-240-oz-Gray-Epoxy-1-Car-Garage-Floor-Kit-365187/314107168#overlay)     
+- [Clear High-Gloss Coating for Epoxy](https://www.homedepot.com/p/Rust-Oleum-EpoxyShield-90-oz-Clear-High-Gloss-2-Part-Epoxy-Interior-Low-VOC-Premium-Concrete-Garage-Floor-Paint-Top-Coat-Kit-365188/314107317)    
+- [1 Car Garage Epoxy Kit](https://www.homedepot.com/p/Rust-Oleum-EpoxyShield-240-oz-Gray-Epoxy-1-Car-Garage-Floor-Kit-365187/314107168#overlay)     
 
 ## Grocery      
 
 ### Products         
-[Saltverk](https://saltverk.com/)    
-[Franklin's BBQ Sauce](https://shop.franklinbbq.com/products/franklin-barbecue-sauce?srsltid=AfmBOoqc27DZG6w2kAu314uN8FETdV3Vo7ndUfyw_jVcDbRrSvczvK_2)    
-[Ezekiel Bread](https://www.foodforlife.com/about_us/ezekiel-49)    
+- [Saltverk](https://saltverk.com/)    
+- [Franklin's BBQ Sauce](https://shop.franklinbbq.com/products/franklin-barbecue-sauce?srsltid=AfmBOoqc27DZG6w2kAu314uN8FETdV3Vo7ndUfyw_jVcDbRrSvczvK_2)    
+- [Ezekiel Bread](https://www.foodforlife.com/about_us/ezekiel-49)    
 
 ## Home       
   
@@ -192,8 +192,8 @@
    
 ## Medicine and Vitamins     
 ### Products      
-[Probotics](https://www.amazon.com/dp/B0B9HRTJ3H?ref=ppx_yo2ov_dt_b_fed_asin_title)     
-[Men's Fermented Vitamins](https://ancientnutrition.com/products/mens-fermented-multi-60-count?srsltid=AfmBOoqTPeDCXy5X1VRG__wUm32dFIAQzNniYaKayZS7T4OFhxdhyzff&variant=32210157371462)   
+- [Probotics](https://www.amazon.com/dp/B0B9HRTJ3H?ref=ppx_yo2ov_dt_b_fed_asin_title)     
+- [Men's Fermented Vitamins](https://ancientnutrition.com/products/mens-fermented-multi-60-count?srsltid=AfmBOoqTPeDCXy5X1VRG__wUm32dFIAQzNniYaKayZS7T4OFhxdhyzff&variant=32210157371462)   
 
 ## Personal     
 ### Products      
@@ -204,8 +204,8 @@
 
 ## Pest Control      
 ### Products       
-[Supreme IT Insecticide](https://www.solutionsstores.com/reclaim-it-insecticide)    
-[Catchmaster Mouse & Insect Glue Traps](https://www.amazon.com/Catchmaster-Mouse-Insect-Professional-Strength/dp/B07VQKNCQK)      
+- [Supreme IT Insecticide](https://www.solutionsstores.com/reclaim-it-insecticide)    
+- [Catchmaster Mouse & Insect Glue Traps](https://www.amazon.com/Catchmaster-Mouse-Insect-Professional-Strength/dp/B07VQKNCQK)      
 
 ## Sprinkler System     
 ### Products       
@@ -216,16 +216,16 @@
 
 ## Tech      
 ### Products       
-[Phone Kickstand](https://www.amazon.com/ESR-Kickstand-Vertical-Horizontal-Adjustable/dp/B08FB5GWZZ/ref=sr_1_3?crid=2JWTK3U2B40CD&dib=eyJ2IjoiMSJ9.RpsndojYq4Wjw8KI6ZNJSPC1RHXV93meqfn6aIj6vZ24NbFDKWgIwLe8fuPt_9AOBsFA1aaKVKV7l0titS5qQOA11dXngUsgVIMwmoVBVyzSHBfbO9yUoTobZoC0fjXFYx6cRHZDbZqKPaQnuNMIswnGh7297ehbGNEZfPyYmJbL6gLoIS5vvKyBkxeAZksMFJrL5Llep0u05M-npzIQZ9KzH2yF54nO8jR1yMLyju0.uakKVZKiHU-PW6Zy6FRS-PQgiLLSvviehf9s6_Xt3tc&dib_tag=se&keywords=esr%2Bphone%2Bstand&qid=1740002731&sprefix=esr%2Bphone%2Bstan%2Caps%2C141&sr=8-3&th=1)    
-[Tomtoc Laptop Case](https://www.amazon.com/tomtoc-Protective-16-inch-2022-2019-Water-Resistant/dp/B0B5CXV1WH/ref=asc_df_B0B5CXV1WH?mcid=63686a54d6a43b15909a2c7459828018&tag=hyprod-20&linkCode=df0&hvadid=693676395786&hvpos=&hvnetw=g&hvrand=4745743925072257960&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-1880079333776&th=1)    
-[ESR Phone Magsafe Sticker](https://www.amazon.com/dp/B09BZ17JM7?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)   
-[ESR Car Mount](https://www.amazon.com/dp/B0B38P9TF8?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)     
-[amFilm Screen Protector](https://www.amazon.com/amFilm-OneTouch-Protector-Auto-Alignment-Protection/dp/B0CQJYD4NP?ref_=ast_sto_dp&th=1)         
+- [Phone Kickstand](https://www.amazon.com/ESR-Kickstand-Vertical-Horizontal-Adjustable/dp/B08FB5GWZZ/ref=sr_1_3?crid=2JWTK3U2B40CD&dib=eyJ2IjoiMSJ9.RpsndojYq4Wjw8KI6ZNJSPC1RHXV93meqfn6aIj6vZ24NbFDKWgIwLe8fuPt_9AOBsFA1aaKVKV7l0titS5qQOA11dXngUsgVIMwmoVBVyzSHBfbO9yUoTobZoC0fjXFYx6cRHZDbZqKPaQnuNMIswnGh7297ehbGNEZfPyYmJbL6gLoIS5vvKyBkxeAZksMFJrL5Llep0u05M-npzIQZ9KzH2yF54nO8jR1yMLyju0.uakKVZKiHU-PW6Zy6FRS-PQgiLLSvviehf9s6_Xt3tc&dib_tag=se&keywords=esr%2Bphone%2Bstand&qid=1740002731&sprefix=esr%2Bphone%2Bstan%2Caps%2C141&sr=8-3&th=1)    
+- [Tomtoc Laptop Case](https://www.amazon.com/tomtoc-Protective-16-inch-2022-2019-Water-Resistant/dp/B0B5CXV1WH/ref=asc_df_B0B5CXV1WH?mcid=63686a54d6a43b15909a2c7459828018&tag=hyprod-20&linkCode=df0&hvadid=693676395786&hvpos=&hvnetw=g&hvrand=4745743925072257960&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-1880079333776&th=1)    
+- [ESR Phone Magsafe Sticker](https://www.amazon.com/dp/B09BZ17JM7?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)   
+- [ESR Car Mount](https://www.amazon.com/dp/B0B38P9TF8?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)     
+- [amFilm Screen Protector](https://www.amazon.com/amFilm-OneTouch-Protector-Auto-Alignment-Protection/dp/B0CQJYD4NP?ref_=ast_sto_dp&th=1)         
 
 ## Tools      
 ### Products        
-[Dewalt 20V MAX XR 1/2 Cordless Hammer DCD1007B](https://www.amazon.com/DEWALT-Cordless-Hammer-Drill-DCD1007B/dp/B0D8TM5MW4#customerReviews)     
-[DEWALT XR POWER DETECT 1/2-in DCD998W1](https://www.lowes.com/pd/DEWALT-XR-POWER-DETECT-1-2-in-20-Volt-Max-Variable-Speed-Brushless-Cordless-Hammer-Drill-1-Battery-Included/1002097694)     
+- [Dewalt 20V MAX XR 1/2 Cordless Hammer DCD1007B](https://www.amazon.com/DEWALT-Cordless-Hammer-Drill-DCD1007B/dp/B0D8TM5MW4#customerReviews)     
+- [DEWALT XR POWER DETECT 1/2-in DCD998W1](https://www.lowes.com/pd/DEWALT-XR-POWER-DETECT-1-2-in-20-Volt-Max-Variable-Speed-Brushless-Cordless-Hammer-Drill-1-Battery-Included/1002097694)     
 
 ### Companies         
 - [Knipex](https://www.knipex-tools.com/) (Germany)    
@@ -235,13 +235,13 @@
 
 ## Yard      
 ### Products      
-[Bagged Landscape Rock](https://www.homedepot.com/p/Vigoro-0-5-cu-ft-Bagged-Marble-Chip-Landscape-Rock-54141/100583677)    
-[Renew Grass and Scrub Spray](https://www.amazon.com/Seymour-20-602-Grass-Shrub-Pristine/dp/B018Y3JRHG/ref=sr_1_1?crid=BG0GDLQUZU89&dib=eyJ2IjoiMSJ9.OiJZ3PdQ1D4mhhcQnV8rty6aPyXplH5cI263hJDRnpGALe1NJjWFGE19Yt-H-LwEpTjWVh0WP4AVr2Ew_y-9gcMg6la5HYorSwPrd2eMe_P_YVlyt9T1M1-6YC976jmPbJz5-5LZZarEups3_aK5SNcfir2Y98kG5iWQunW0aAABNScEu2-TWVLw57biolzkRP1KsWOY6_RFd8wLamHGPfymiuAPS_BaLW08SGMNEXrHvfRLYfSRTm0INTE8eG9A4p1yvGY1lcWI2OG8dViiNsVZApqlsGTBueLW7MhGkcOWVrB2b1-6cb_EvQiKYMNIZ6D9rNIGOscV0aTFMUyWRYolsiJOL2ULZfTsR5Y2OacOCWKSm0ZuWXjEaydi5TXb7jj8jxBGA6-9Jg8r1Qhj6D1IiNDmE40D-L3SiAObCuKn4HwLxGz2H0DDp55MBuRt.f8zMRgTQ8rdcMFR6GRREuEYEyX6gxjRJcGKtFQ-jtWk&dib_tag=se&keywords=renew%2Bgrass&qid=1740003249&sprefix=renew%2Bgrass%2Caps%2C137&sr=8-1&th=1)    
-[Sedge Hammer Herbicide](https://www.amazon.com/Sedgehammer-1-3-oz/dp/B004GGQ44A) - controls weed and moss    
-[Dominion 2L Insecticide](https://www.solutionsstores.com/dominion-2l-insecticide?sku=CSI4&gad_source=1&gclid=CjwKCAiAn9a9BhBtEiwAbKg6fmPiA8NoCLCcL50xKaIEfANB8sZjkExkL4Ss5_LdQrm6qzpUHtVj_BoCKCMQAvD_BwE#156=903)    
-[Primesource Quinclorac 1.5 Select Liquid Crabgrass Killer](https://www.amazon.com/Primesource-Quinclorac-Select-Liquid-Crabgrass/dp/B07KYVGH9V/ref=sr_1_8?crid=3NRURCXAPW8T0&dib=eyJ2IjoiMSJ9.8L4CntVuAzgjKgF4Tt_WpaR7dRYhxYUAQLN_Io6Fy0_b-77RatNNJVM7ytWg9h_Na45ZejVjCA_OC7TX9xQM5XprH1x3Ky8LdT-luntJgiR_i-br6DYJAZe1SHb6fpJs0RTnFbqvvPM3PO0QRWT4OQsMr4HRS6S8DmL5Fj4EosZFXq8tdpIkTxjT-fu4O3UGpdFANWwbPbNGbMGgXFPKB1a71Z9iwhfOTbU50NTjI6A5j4CmAOn3BKjXs7zBVXwpyAzDGnqH6icpj8ijBUTd1qFRLiLMp-OXMNL6rtLckg8tGByttPTlV30zi72R7J3cDmRiT1cpPmSVosHEW5yONjAgerw8h6-cELNuoAAuqNlmxpouc6inRjLJXoYJ18CD1sHoMhDVSlepi2B15WQuMa98-GcszKh_QQC-hs52sxiNXp0vcp8DOdEznfSG42j8.WSsVjTj3pDkIKUg7TsDztA6RXkY4fgvC-DcWqj9qYt8&dib_tag=se&keywords=quinclorac&qid=1740003308&sprefix=quinclorac%2Caps%2C149&sr=8-8)    
-[Unger Professional 36” Nifty Nabber](https://www.amazon.com/Unger-Professional-Nifty-Nabber-36/dp/B0000V0AGS?source=ps-sl-shoppingads-lpcontext&ref_=fplfs&smid=ATVPDKIKX0DER&gQT=1&th=1)    
-[Square Catch Basin Drain](https://www.homedepot.com/p/NDS-9-in-Square-Catch-Basin-Drain-Kit-2-Opening-Basin-Black-Plastic-Grate-2-Outlet-Adapters-and-1-Outlet-Plug-4-Pack-900BKIT-4PK/313564960#overlay)     
-[Grampa's Weeder](https://www.amazon.com/Grampas-Weeder-CW-01-Original-Remover/dp/B001D1FFZA?source=ps-sl-shoppingads-lpcontext&ref_=fplfs&psc=1&smid=A3RXQF4NI8HCLF&gQT=1)    
-[Southern Ag Surfactant for Herbicides](https://www.amazon.com/Southern-Ag-Surfactant-Herbicides-Non-Ionic/dp/B004XDHRCE/ref=asc_df_B004XDHRCE?mcid=263de240390c3aa3b68aaa00457cf414&tag=hyprod-20&linkCode=df0&hvadid=693713553292&hvpos=&hvnetw=g&hvrand=5493298058360403992&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-329402406474&th=1)      
+- [Bagged Landscape Rock](https://www.homedepot.com/p/Vigoro-0-5-cu-ft-Bagged-Marble-Chip-Landscape-Rock-54141/100583677)    
+- [Renew Grass and Scrub Spray](https://www.amazon.com/Seymour-20-602-Grass-Shrub-Pristine/dp/B018Y3JRHG/ref=sr_1_1?crid=BG0GDLQUZU89&dib=eyJ2IjoiMSJ9.OiJZ3PdQ1D4mhhcQnV8rty6aPyXplH5cI263hJDRnpGALe1NJjWFGE19Yt-H-LwEpTjWVh0WP4AVr2Ew_y-9gcMg6la5HYorSwPrd2eMe_P_YVlyt9T1M1-6YC976jmPbJz5-5LZZarEups3_aK5SNcfir2Y98kG5iWQunW0aAABNScEu2-TWVLw57biolzkRP1KsWOY6_RFd8wLamHGPfymiuAPS_BaLW08SGMNEXrHvfRLYfSRTm0INTE8eG9A4p1yvGY1lcWI2OG8dViiNsVZApqlsGTBueLW7MhGkcOWVrB2b1-6cb_EvQiKYMNIZ6D9rNIGOscV0aTFMUyWRYolsiJOL2ULZfTsR5Y2OacOCWKSm0ZuWXjEaydi5TXb7jj8jxBGA6-9Jg8r1Qhj6D1IiNDmE40D-L3SiAObCuKn4HwLxGz2H0DDp55MBuRt.f8zMRgTQ8rdcMFR6GRREuEYEyX6gxjRJcGKtFQ-jtWk&dib_tag=se&keywords=renew%2Bgrass&qid=1740003249&sprefix=renew%2Bgrass%2Caps%2C137&sr=8-1&th=1)    
+- [Sedge Hammer Herbicide](https://www.amazon.com/Sedgehammer-1-3-oz/dp/B004GGQ44A) - controls weed and moss    
+- [Dominion 2L Insecticide](https://www.solutionsstores.com/dominion-2l-insecticide?sku=CSI4&gad_source=1&gclid=CjwKCAiAn9a9BhBtEiwAbKg6fmPiA8NoCLCcL50xKaIEfANB8sZjkExkL4Ss5_LdQrm6qzpUHtVj_BoCKCMQAvD_BwE#156=903)    
+- [Primesource Quinclorac 1.5 Select Liquid Crabgrass Killer](https://www.amazon.com/Primesource-Quinclorac-Select-Liquid-Crabgrass/dp/B07KYVGH9V/ref=sr_1_8?crid=3NRURCXAPW8T0&dib=eyJ2IjoiMSJ9.8L4CntVuAzgjKgF4Tt_WpaR7dRYhxYUAQLN_Io6Fy0_b-77RatNNJVM7ytWg9h_Na45ZejVjCA_OC7TX9xQM5XprH1x3Ky8LdT-luntJgiR_i-br6DYJAZe1SHb6fpJs0RTnFbqvvPM3PO0QRWT4OQsMr4HRS6S8DmL5Fj4EosZFXq8tdpIkTxjT-fu4O3UGpdFANWwbPbNGbMGgXFPKB1a71Z9iwhfOTbU50NTjI6A5j4CmAOn3BKjXs7zBVXwpyAzDGnqH6icpj8ijBUTd1qFRLiLMp-OXMNL6rtLckg8tGByttPTlV30zi72R7J3cDmRiT1cpPmSVosHEW5yONjAgerw8h6-cELNuoAAuqNlmxpouc6inRjLJXoYJ18CD1sHoMhDVSlepi2B15WQuMa98-GcszKh_QQC-hs52sxiNXp0vcp8DOdEznfSG42j8.WSsVjTj3pDkIKUg7TsDztA6RXkY4fgvC-DcWqj9qYt8&dib_tag=se&keywords=quinclorac&qid=1740003308&sprefix=quinclorac%2Caps%2C149&sr=8-8)    
+- [Unger Professional 36” Nifty Nabber](https://www.amazon.com/Unger-Professional-Nifty-Nabber-36/dp/B0000V0AGS?source=ps-sl-shoppingads-lpcontext&ref_=fplfs&smid=ATVPDKIKX0DER&gQT=1&th=1)    
+- [Square Catch Basin Drain](https://www.homedepot.com/p/NDS-9-in-Square-Catch-Basin-Drain-Kit-2-Opening-Basin-Black-Plastic-Grate-2-Outlet-Adapters-and-1-Outlet-Plug-4-Pack-900BKIT-4PK/313564960#overlay)     
+- [Grampa's Weeder](https://www.amazon.com/Grampas-Weeder-CW-01-Original-Remover/dp/B001D1FFZA?source=ps-sl-shoppingads-lpcontext&ref_=fplfs&psc=1&smid=A3RXQF4NI8HCLF&gQT=1)    
+- [Southern Ag Surfactant for Herbicides](https://www.amazon.com/Southern-Ag-Surfactant-Herbicides-Non-Ionic/dp/B004XDHRCE/ref=asc_df_B004XDHRCE?mcid=263de240390c3aa3b68aaa00457cf414&tag=hyprod-20&linkCode=df0&hvadid=693713553292&hvpos=&hvnetw=g&hvrand=5493298058360403992&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-329402406474&th=1)        
 
