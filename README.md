@@ -5,7 +5,7 @@
 ### [🛁 Bath](#Bath)  
 ### [🛏️ Bed](#Bed)  
 ### [🚗 Garage](#Garage)  
-### [🛒 Grocery](#Grocery)  
+### [🛒 Grocery](#Grocery)    
 ### [🏠 Home](#Home)  
 ### [🍽️ Kitchen](#Kitchen)  
 ### [💊 Medicine and Vitamins](#Medicine-and-Vitamins)  
