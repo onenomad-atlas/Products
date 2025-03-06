@@ -184,7 +184,7 @@
 ## Pest Control  
 
 [Supreme IT Insecticide](https://www.solutionsstores.com/reclaim-it-insecticide)    
-[Catchmaster Mouse & Insect Professional Strength Glue Traps](https://www.amazon.com/Catchmaster-Mouse-Insect-Professional-Strength/dp/B07VQKNCQK)      
+[Catchmaster Mouse & Insect Glue Traps](https://www.amazon.com/Catchmaster-Mouse-Insect-Professional-Strength/dp/B07VQKNCQK)      
 
 ## Sprinkler System  
 
