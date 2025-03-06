@@ -87,28 +87,28 @@
 - [Pinwin Showerhead](https://www.amazon.com/dp/B09D39JFYB?ref_=cm_sw_r_apan_dp_4RNNY109E5XKXEQ7DNMM&language=en-US&th=1)
 - [Delta Faucet Shower Arm Diverter for Hand Shower](https://www.amazon.com/dp/B0064TXLHA?ref=cm_sw_r_apan_dp_JBFCMF2KMTNG1GQAGEXN&ref_=cm_sw_r_apan_dp_JBFCMF2KMTNG1GQAGEXN&social_share=cm_sw_r_apan_dp_JBFCMF2KMTNG1GQAGEXN&peakEvent=5&starsLeft=1&skipTwisterOG=1&th=1)    
 
-## Bed    
-### Products    
+## Bed     
+
+### Products     
 [California Design Den Bed Sheets](https://www.amazon.com/dp/B09X1N1F8Y?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
 [JUMMICO 360° Swivel Mirror](https://www.amazon.com/dp/B0CZ8DGDCD?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
 [Sorbus Floating Shelves](https://www.amazon.com/dp/B09P46SSZT?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
 
 ## Garage    
-### Products       
-
+### Products        
 [Clear High-Gloss Coating for Epoxy](https://www.homedepot.com/p/Rust-Oleum-EpoxyShield-90-oz-Clear-High-Gloss-2-Part-Epoxy-Interior-Low-VOC-Premium-Concrete-Garage-Floor-Paint-Top-Coat-Kit-365188/314107317)    
 [1 Car Garage Epoxy Kit](https://www.homedepot.com/p/Rust-Oleum-EpoxyShield-240-oz-Gray-Epoxy-1-Car-Garage-Floor-Kit-365187/314107168#overlay)     
 
-## Grocery    
+## Grocery      
 
-### Products       
+### Products         
 [Saltverk](https://saltverk.com/)    
 [Franklin's BBQ Sauce](https://shop.franklinbbq.com/products/franklin-barbecue-sauce?srsltid=AfmBOoqc27DZG6w2kAu314uN8FETdV3Vo7ndUfyw_jVcDbRrSvczvK_2)    
 [Ezekiel Bread](https://www.foodforlife.com/about_us/ezekiel-49)    
 
-## Home     
-
-### Companies   
+## Home       
+  
+### Companies     
 - [Miele](https://www.miele.com/) (Germany)    
 - [Dualit](https://www.dualit.com/) (UK)   
 - [Bosch Home](https://www.bosch-home.com/us/) (Germany)   
@@ -127,7 +127,7 @@
 - [Makita](https://www.makitatools.com/) (Japan)   
 - [Rockwell](https://getrockwell.com/) (USA)
 
-### Products   
+### Products      
 - [Amico 25 Pack Recessed Ceiling Light](https://www.amazon.com/Amico-Recessed-Selectable-Ultra-Thin-Downlight/dp/B0D2H9K5QP/ref=sr_1_5?crid=29WIQ9Q5SX62S&dib=eyJ2IjoiMSJ9.khHk3H-2ixshXIXf0xmXgoQUkTK2-8RbSk2LPSeSJ5OtWDtnvTRtG-WaXjN2FiBydDAGXXXD8a8x3rnBvb43cTR0-rc2lAz1izSbESRI2KESpvjBY01zCZ8J7ElcXndzspMYWuLA_aQ7HS80KL6JbWHJskRfPyZuzXk463LL8p_Yc5VGHZIA2gzP6o5YX1Vdi7uImtaizw-3SqzV2WO_O3RblYZA_uiVPgCcriA7lN97EAu6VV6cQ5rCrCuk_g8sDhQeucJy43yDkbHwfNyFe37kBu7wjT6EYc7MxYZfrcDmT9SKU9GtvKhLTLT1ZoWOmWvv5pw6YUmtpzaSksocYX5nkwQwn-6_d8uY_RAN4ZfevRCLL3K57RAbpcjl_ioxtWRweUlcFP22JQB0r0_r3h7ySv-FgYy7zQe9JAhNw2Dq8wfbWFf1C5Sqp8JyrzpA.-su4W7XVzq2uZ1uy84wHZZ8r7GFCvatosJLkTNR29JM&dib_tag=se&keywords=Amico%2B24%2BPack%2B6%2BInch%2B5CCT%2BLED%2BRecessed%2BCeiling%2BLight%2Bwith%2BNight%2BLight%2C%2B2700K%2F3000K%2F3500K%2F4000K%2F5000K%2BSelectable%2BUltra-Thin%2BRecessed%2BLighting%2C%2B12W%3D110W%2C%2B1100LM%2C%2BDimmable%2BCanless%2BWafer%2BDownlight%2BETL%26FCC&qid=1740002918&sprefix=amico%2B24%2Bpack%2B6%2Binch%2B5cct%2Bled%2Brecessed%2Bceiling%2Blight%2Bwith%2Bnight%2Blight%2C%2B2700k%2F3000k%2F3500k%2F4000k%2F5000k%2Bselectable%2Bultra-thin%2Brecessed%2Blighting%2C%2B12w%2B110w%2C%2B1100lm%2C%2Bdimmable%2Bcanless%2Bwafer%2Bdownlight%2Betl%26fcc%2Caps%2C123&sr=8-5&th=1)
 - [Table Protector](https://www.amazon.com/LovePads-1-5mm-Protector-Dining-Plastic/dp/B0794R66XC/ref=sr_1_5?crid=JXJD85N757LW&dib=eyJ2IjoiMSJ9.SCV9VkwmSUk2uNCcn_ckbsGWz07eGmn5hgRM28fKNGMiJJbVkedzwQ8oPES8AiEutVqLoAaiGIfC4gfOFMJu6gC9ACBSV6jImGOI4vY3YkpcCVFc8Sb_NCaH-y52LxYBHj5bbBb8tJEtbXb89EG_denkwZlOQeIqInMyqu-hXQRqvCtwDK8k3uUTyAZ83eNaeIJmeb6j9WO3PkJUgF5wcCVHrGjkY24hbYiVmgtIyWpyKwxeQ5-ed2oNG-v8yHRZgaes1DW5Rmqqv000Ft6tGqJwm2UkPPhf7z65jt1lFl76ypwdN-MV5UwPU1GFiZb9hDEv1jRGb_LfZRYOokcaZYwqHVIGdkPHpG_oYxc6SOncdPFHmeeQQSJZWu6McWbhQ1DXM6qhSGonomx_JO_79V78iGm-qNXmaxfeuI_fGI9QUcnkbVnW7Z7pl9M1_bR3.C53xFxDFwEekiUj0gW0Wy4aN_TaiGzchm534YD7IoEI&dib_tag=se&keywords=lovepads%2B1.5mm%2Bthick%2Bclear%2Btable%2Bcover&qid=1739488173&sprefix=lovepads%2B%2Caps%2C123&sr=8-5&th=1)
 - [Foam Pipe Insulation](https://www.lowes.com/pd/Frost-King-0-75-in-x-6-ft-Foam-Plumbing-Tubular-Pipe-Insulation/1001089480?gStoreCode=1898&gQT=1)     
@@ -156,9 +156,9 @@
 - [Roof Rain Collar Flashing](https://www.amazon.com/Oatey-14135-collar-No-Calk-Flashing/dp/B0069KAN4I/ref=as_li_ss_tl?keywords=rubber+gasket+roof+vent&qid=1568138993&s=office-products&sr=1-7-catcorr&linkCode=sl1&tag=hisldousent-20&linkId=aaad188863331fd6f9fd96fa5b4a56f6)
 - [Self-Leveling Lap Sealant](https://www.amazon.com/Dicor-Corporation-501LSB-1-Epdm-Black/dp/B019QHAQ9M/ref=as_li_ss_tl?keywords=lap%2Bsealant%2Bfor%2Brv%2Broofs&pd_rd_r=447b129f-9e7a-4421-88e0-0eb839b5c7dd&pd_rd_w=aJep5&pd_rd_wg=6i9wm&pf_rd_p=67c9d84c-d98a-4415-a549-dd3360e9d207&pf_rd_r=FWPZC5X63JVT6M599WTY&qid=1568139205&s=gateway&sr=8-41&linkCode=sl1&tag=hisldousent-20&linkId=81d8a6774fa7d1139237a41f77fe79be&th=1)   
 
-## Kitchen  
-
-### Companies 
+## Kitchen     
+  
+### Companies     
 - [Le Creuset](https://www.lecreuset.com/) (France)   
 - [De Buyer](https://www.debuyer.com/) (France)   
 - [Fissler](https://www.fissler.com/) (Germany)   
@@ -173,7 +173,7 @@
 - [Mann Kitchen](https://mannkitchen.com/products/the-original-pepper-cannon-pepper-mill) (USA)   
 - [PK Grills](https://www.pkgrills.com/) (USA)
   
-### Products 
+### Products      
 - [Grill Tongs](https://www.homedepot.com/p/Weber-Precision-Grill-Tongs-6768/317178669?source=shoppingads&locale=en-US&srsltid=AfmBOoqPoAwiIO-t6zgYzS6WnyS0ukijfQwdECOZIWun0X76Qnvg1gxYluk&gQT=2#overlay)
 - [Ice Cream Scoop](https://www.amazon.com/Zeroll-Original-Conductive-Aluminum-Release/dp/B0002U33RU/ref=asc_df_B0002U33RU?mcid=ceac575867a7307c99e3ca2fbac88879&tag=hyprod-20&linkCode=df0&hvadid=693071387716&hvpos=&hvnetw=g&hvrand=9660746868208320618&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027776&hvtargid=pla-305573577960&th=1)
 - [BBQ Skewers](https://www.amazon.com/Lavo-Home-Stainless-Mediterranean-Brazilian-Style/dp/B082J52FN9?th=1)
@@ -190,46 +190,46 @@
 - [Ganiza Smoothie Maker](https://www.amazon.com/Ganiza-Smoothie-Smoothies-15-Piece-Nutritious/dp/B0CCDG91CS)
 - [Enfmay Smoothie Maker](https://www.amazon.com/Enfmay-Smoothie-Performance-Countdown-Container/dp/B0BR3Q5JP9/ref=asc_df_B0BR3Q5JP9?mcid=d931ee0dfb7f3bd0b322ba1304557aa4&tag=hyprod-20&linkCode=df0&hvadid=693770002448&hvpos=&hvnetw=g&hvrand=11182784531376750311&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-1965287026226&th=1)   
    
-## Medicine and Vitamins  
-
+## Medicine and Vitamins     
+### Products      
 [Probotics](https://www.amazon.com/dp/B0B9HRTJ3H?ref=ppx_yo2ov_dt_b_fed_asin_title)     
 [Men's Fermented Vitamins](https://ancientnutrition.com/products/mens-fermented-multi-60-count?srsltid=AfmBOoqTPeDCXy5X1VRG__wUm32dFIAQzNniYaKayZS7T4OFhxdhyzff&variant=32210157371462)   
 
-## Personal  
-
+## Personal     
+### Products      
 - [10-Slot Watch Case](https://www.amazon.com/dp/B0B8SDHPMR?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
 - [Nose & Ear Hair Trimmer](https://www.amazon.com/Groom-Mate-Platinum-Nose-Trimmer/dp/B000EBFJXS/ref=sr_1_5?crid=M98KCQI9LAWX&dib=eyJ2IjoiMSJ9.beyjyA450EibcAnUXcmgyxm_JbR8uHMzYXbwigCXsodT5n5miZrr-5jhtmydFBSf_9wl3bB_cvH0PWzXTfA1thE0M_BAg6iJ6GR_pfGr3kbSOPPQYp6hIOUnoSFdIPokt4-J16TDNz0_l9_rJ2oQ68CTfyW3ezdZj1TfjRgQqBFdYxHUQNm9pN5JfD8MUYc-2fAZ5te_olD0tmJ92Uj7G509HFOg7I06ZDhl8DDxM4lej1lupY2a37oeVwZQSkx0mdGMJm-v3-BQcafnDbk25kj4YTa3rfnhv4wXhqIzX47_YxO3J9pJ3xoXEEQMAtDjoXRvYssWU8SyhfQo104bVo6-LJnJzIwNJnVbSjI6yPrU225uiYEEEkXHS-qI_Me2iPaN5pb1HpWSpG-OuA2zZXdeqYXV2iJXvunpQvMAFPPoVbX6UFGNTk5CEfymXyjC.WC_fPMoooBj_WQOT7Pz2WQ40M1eLtpy2KQPN00clIhw&dib_tag=se&keywords=groom+mate&qid=1739327194&sprefix=groom+mate%2Caps%2C121&sr=8-5#customerReviews)
 - [Double Edge Safety Razor Blades](https://www.amazon.com/Feather-Double-Edge-Razor-Blades/dp/B001G5HZCY/ref=sr_1_6?crid=1ECY42EK9IJ14&dib=eyJ2IjoiMSJ9.KPSLBHcSH6qwZJKnH8FA1RXRmvYClNs-B-5WtLmF7mMet4lijm3rI-loqk52_flMG-bN5oKvXIS0qJY9ZWfUuvaYfYOaEz8WPL0-SejrC4mYoJdIJobJtz1yA4pKZklfKXp7nQ0WZvzOWVgL1g1XBIaPuqQPb7e2fcYIMKIM9DtbviHRtPfPdakiUPPgyVE2pl7mis1sMWmMt2IBKkGRnEtAQsJQVADfmI4FNwcia1aZz_P4kdwcQrFqJVU9Xw5DFeq2OP0OAyt7lcRWWZB9zfzYJzAf7wKqfIvgDzLnL8iAZ2wcKx5fxgLT3BSUunTedcPAOGdtQnVfRwzrxHdXhVka45rzAMl-uEmdzcMzURtVBuVilD0q5sm8udgLjK25xWHVA1t9Tu7h9DHjBwaLdiKHCPGOWfDhPLh8kmrxw02wqBFYbXmRVsUJhntKaE8N.Ib5d-G_6soe2En8DtRnu57XCPnp0fij5WEXEJ5VLLVY&dib_tag=se&keywords=feather+blades&qid=1738879667&sprefix=feather+blade%2Caps%2C139&sr=8-6)    
 
 
-## Pest Control  
-
+## Pest Control      
+### Products       
 [Supreme IT Insecticide](https://www.solutionsstores.com/reclaim-it-insecticide)    
 [Catchmaster Mouse & Insect Glue Traps](https://www.amazon.com/Catchmaster-Mouse-Insect-Professional-Strength/dp/B07VQKNCQK)      
 
-## Sprinkler System  
-
+## Sprinkler System     
+### Products       
 - [Hunter Pop-up Body w/ Check Valve](https://www.ewingoutdoorsupply.com/44011340-pro-spray-4-in-pop-up-body-w-check-valve)    
 - [Gorilla Easy Connect for Pipes](https://www.homedepot.com/b/Outdoors-Garden-Center-Watering-Irrigation-Watering-Essentials-Hose-Connectors/GORILLA-EASY-CONNECT/N-5yc1vZbx5nZyln)
 - [Watts Pressure Vacuum Breaker](https://www.homedepot.com/p/Watts-1-in-Pressure-Vacuum-Breaker-800M4-QT/100023435)
 - [Gardern Hose Quick Connector](https://www.amazon.com/dp/B086PZG7S6?ref=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&ref_=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&social_share=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&starsLeft=1&skipTwisterOG=1&newOGT=1&th=1)    
 
-## Tech  
-
+## Tech      
+### Products       
 [Phone Kickstand](https://www.amazon.com/ESR-Kickstand-Vertical-Horizontal-Adjustable/dp/B08FB5GWZZ/ref=sr_1_3?crid=2JWTK3U2B40CD&dib=eyJ2IjoiMSJ9.RpsndojYq4Wjw8KI6ZNJSPC1RHXV93meqfn6aIj6vZ24NbFDKWgIwLe8fuPt_9AOBsFA1aaKVKV7l0titS5qQOA11dXngUsgVIMwmoVBVyzSHBfbO9yUoTobZoC0fjXFYx6cRHZDbZqKPaQnuNMIswnGh7297ehbGNEZfPyYmJbL6gLoIS5vvKyBkxeAZksMFJrL5Llep0u05M-npzIQZ9KzH2yF54nO8jR1yMLyju0.uakKVZKiHU-PW6Zy6FRS-PQgiLLSvviehf9s6_Xt3tc&dib_tag=se&keywords=esr%2Bphone%2Bstand&qid=1740002731&sprefix=esr%2Bphone%2Bstan%2Caps%2C141&sr=8-3&th=1)    
 [Tomtoc Laptop Case](https://www.amazon.com/tomtoc-Protective-16-inch-2022-2019-Water-Resistant/dp/B0B5CXV1WH/ref=asc_df_B0B5CXV1WH?mcid=63686a54d6a43b15909a2c7459828018&tag=hyprod-20&linkCode=df0&hvadid=693676395786&hvpos=&hvnetw=g&hvrand=4745743925072257960&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-1880079333776&th=1)    
 [ESR Phone Magsafe Sticker](https://www.amazon.com/dp/B09BZ17JM7?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)   
 [ESR Car Mount](https://www.amazon.com/dp/B0B38P9TF8?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)     
 [amFilm Screen Protector](https://www.amazon.com/amFilm-OneTouch-Protector-Auto-Alignment-Protection/dp/B0CQJYD4NP?ref_=ast_sto_dp&th=1)         
 
-## Tools
-
+## Tools      
+### Products        
 [Dewalt 20V MAX XR 1/2 Cordless Hammer DCD1007B](https://www.amazon.com/DEWALT-Cordless-Hammer-Drill-DCD1007B/dp/B0D8TM5MW4#customerReviews)     
 [DEWALT XR POWER DETECT 1/2-in DCD998W1](https://www.lowes.com/pd/DEWALT-XR-POWER-DETECT-1-2-in-20-Volt-Max-Variable-Speed-Brushless-Cordless-Hammer-Drill-1-Battery-Included/1002097694)   
 
 
-## Yard    
-
+## Yard      
+### Products      
 [Bagged Landscape Rock](https://www.homedepot.com/p/Vigoro-0-5-cu-ft-Bagged-Marble-Chip-Landscape-Rock-54141/100583677)    
 [Renew Grass and Scrub Spray](https://www.amazon.com/Seymour-20-602-Grass-Shrub-Pristine/dp/B018Y3JRHG/ref=sr_1_1?crid=BG0GDLQUZU89&dib=eyJ2IjoiMSJ9.OiJZ3PdQ1D4mhhcQnV8rty6aPyXplH5cI263hJDRnpGALe1NJjWFGE19Yt-H-LwEpTjWVh0WP4AVr2Ew_y-9gcMg6la5HYorSwPrd2eMe_P_YVlyt9T1M1-6YC976jmPbJz5-5LZZarEups3_aK5SNcfir2Y98kG5iWQunW0aAABNScEu2-TWVLw57biolzkRP1KsWOY6_RFd8wLamHGPfymiuAPS_BaLW08SGMNEXrHvfRLYfSRTm0INTE8eG9A4p1yvGY1lcWI2OG8dViiNsVZApqlsGTBueLW7MhGkcOWVrB2b1-6cb_EvQiKYMNIZ6D9rNIGOscV0aTFMUyWRYolsiJOL2ULZfTsR5Y2OacOCWKSm0ZuWXjEaydi5TXb7jj8jxBGA6-9Jg8r1Qhj6D1IiNDmE40D-L3SiAObCuKn4HwLxGz2H0DDp55MBuRt.f8zMRgTQ8rdcMFR6GRREuEYEyX6gxjRJcGKtFQ-jtWk&dib_tag=se&keywords=renew%2Bgrass&qid=1740003249&sprefix=renew%2Bgrass%2Caps%2C137&sr=8-1&th=1)    
 [Sedge Hammer Herbicide](https://www.amazon.com/Sedgehammer-1-3-oz/dp/B004GGQ44A) - controls weed and moss    
@@ -240,7 +240,8 @@
 [Grampa's Weeder](https://www.amazon.com/Grampas-Weeder-CW-01-Original-Remover/dp/B001D1FFZA?source=ps-sl-shoppingads-lpcontext&ref_=fplfs&psc=1&smid=A3RXQF4NI8HCLF&gQT=1)    
 [Southern Ag Surfactant for Herbicides](https://www.amazon.com/Southern-Ag-Surfactant-Herbicides-Non-Ionic/dp/B004XDHRCE/ref=asc_df_B004XDHRCE?mcid=263de240390c3aa3b68aaa00457cf414&tag=hyprod-20&linkCode=df0&hvadid=693713553292&hvpos=&hvnetw=g&hvrand=5493298058360403992&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-329402406474&th=1)    
 
-## Tools
+## Tools    
+### Products      
 - [Knipex](https://www.knipex-tools.com/) (Germany)
 - [Makita](https://www.makitatools.com/) (Japan)
 - [Rockwell](https://getrockwell.com/) (USA)
