@@ -185,7 +185,8 @@
 - [OXO Containers](https://www.oxo.com/shop/kitchenware/pop-containers.html)
 - [OXO Ice Cream Scoop](https://www.amazon.com/OXO-Grips-Classic-Cream-Scoop/dp/B08Q2CQSC9/ref=asc_df_B08Q2CQSC9?mcid=7b9fd6fc2b05373b9f086b1f55d171aa&tag=hyprod-20&linkCode=df0&hvadid=693711673828&hvpos=&hvnetw=g&hvrand=10796465786049499769&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-1196259999486&th=1)
 - [Faucet and Sink Installer](https://www.amazon.com/Installer-1%EF%BC%89Multi-purpose-Plumbing-Bathroom-Installation/dp/B07SRYS4N4/ref=asc_df_B07SRYS4N4?mcid=56476c4ab86e3080aedda994ea004542&tag=hyprod-20&linkCode=df0&hvadid=693270340293&hvpos=&hvnetw=g&hvrand=11377639199915813751&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027776&hvtargid=pla-874006351648&th=1)     
-- [Heavy Duty Degreaser](https://www.amazon.com/dp/B077NPFTGR?ref=cm_sw_r_apan_dp_35S82CANH4GV8WR5CEYS&ref_=cm_sw_r_apan_dp_35S82CANH4GV8WR5CEYS&social_share=cm_sw_r_apan_dp_35S82CANH4GV8WR5CEYS&starsLeft=1&th=1)   
+- [Heavy Duty Degreaser](https://www.amazon.com/dp/B077NPFTGR?ref=cm_sw_r_apan_dp_35S82CANH4GV8WR5CEYS&ref_=cm_sw_r_apan_dp_35S82CANH4GV8WR5CEYS&social_share=cm_sw_r_apan_dp_35S82CANH4GV8WR5CEYS&starsLeft=1&th=1)
+- [Wide Cabinet Handle](https://www.amazon.com/dp/B09XQND728?ref=ppx_pop_mob_ap_share&th=1)    
 
 **Smoothie Makers (Not Tested)**
 - [Reemix Smoothie Maker](https://www.amazon.com/Reemix-Smoothie-Professional-Container-Stainless/dp/B0BK8QWHYD)
