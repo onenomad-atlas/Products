@@ -159,7 +159,9 @@
 - [Elfa Cabinet-Sized Mesh Closet Drawers](https://www.containerstore.com/s/elfa/best-selling-solutions/drawer-units/elfa-cabinet-closet-drawers/123d?productId=11021262)
 - [Plastic Waste Container](https://www.amazon.com/Hardware-Resources-CAN-50W-Plastic-Container/dp/B008ALEYLM/ref=sr_1_6?crid=3CXZ28LW0OFBL&keywords=plastic%2Btrash%2Bcan%2Bkitchen%2Bno%2Blid&qid=1676065803&sprefix=plastic%2Btrash%2Bcan%2Bkitchen%2Caps%2C124&sr=8-6&th=1)
 - [Roof Rain Collar Flashing](https://www.amazon.com/Oatey-14135-collar-No-Calk-Flashing/dp/B0069KAN4I/ref=as_li_ss_tl?keywords=rubber+gasket+roof+vent&qid=1568138993&s=office-products&sr=1-7-catcorr&linkCode=sl1&tag=hisldousent-20&linkId=aaad188863331fd6f9fd96fa5b4a56f6)
-- [Self-Leveling Lap Sealant](https://www.amazon.com/Dicor-Corporation-501LSB-1-Epdm-Black/dp/B019QHAQ9M/ref=as_li_ss_tl?keywords=lap%2Bsealant%2Bfor%2Brv%2Broofs&pd_rd_r=447b129f-9e7a-4421-88e0-0eb839b5c7dd&pd_rd_w=aJep5&pd_rd_wg=6i9wm&pf_rd_p=67c9d84c-d98a-4415-a549-dd3360e9d207&pf_rd_r=FWPZC5X63JVT6M599WTY&qid=1568139205&s=gateway&sr=8-41&linkCode=sl1&tag=hisldousent-20&linkId=81d8a6774fa7d1139237a41f77fe79be&th=1)   
+- [Self-Leveling Lap Sealant](https://www.amazon.com/Dicor-Corporation-501LSB-1-Epdm-Black/dp/B019QHAQ9M/ref=as_li_ss_tl?keywords=lap%2Bsealant%2Bfor%2Brv%2Broofs&pd_rd_r=447b129f-9e7a-4421-88e0-0eb839b5c7dd&pd_rd_w=aJep5&pd_rd_wg=6i9wm&pf_rd_p=67c9d84c-d98a-4415-a549-dd3360e9d207&pf_rd_r=FWPZC5X63JVT6M599WTY&qid=1568139205&s=gateway&sr=8-41&linkCode=sl1&tag=hisldousent-20&linkId=81d8a6774fa7d1139237a41f77fe79be&th=1)
+- [Smart Door Lock](https://www.amazon.com/dp/B0B9BVYR33?ref=ppx_pop_mob_ap_share&th=1)
+- [Label Printer](https://www.amazon.com/dp/B0CKXJGBT3?ref=ppx_pop_mob_ap_share&th=1)     
 
 ## Kitchen     
   
@@ -190,7 +192,8 @@
 - [OXO Ice Cream Scoop](https://www.amazon.com/OXO-Grips-Classic-Cream-Scoop/dp/B08Q2CQSC9/ref=asc_df_B08Q2CQSC9?mcid=7b9fd6fc2b05373b9f086b1f55d171aa&tag=hyprod-20&linkCode=df0&hvadid=693711673828&hvpos=&hvnetw=g&hvrand=10796465786049499769&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-1196259999486&th=1)
 - [Faucet and Sink Installer](https://www.amazon.com/Installer-1%EF%BC%89Multi-purpose-Plumbing-Bathroom-Installation/dp/B07SRYS4N4/ref=asc_df_B07SRYS4N4?mcid=56476c4ab86e3080aedda994ea004542&tag=hyprod-20&linkCode=df0&hvadid=693270340293&hvpos=&hvnetw=g&hvrand=11377639199915813751&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027776&hvtargid=pla-874006351648&th=1)     
 - [Heavy Duty Degreaser](https://www.amazon.com/dp/B077NPFTGR?ref=cm_sw_r_apan_dp_35S82CANH4GV8WR5CEYS&ref_=cm_sw_r_apan_dp_35S82CANH4GV8WR5CEYS&social_share=cm_sw_r_apan_dp_35S82CANH4GV8WR5CEYS&starsLeft=1&th=1)
-- [Wide Cabinet Handle](https://www.amazon.com/dp/B09XQND728?ref=ppx_pop_mob_ap_share&th=1)    
+- [Wide Cabinet Handle](https://www.amazon.com/dp/B09XQND728?ref=ppx_pop_mob_ap_share&th=1)
+- [Insulated Cup](https://www.amazon.com/Lollicup-C-KRC512-Karat-Ripple-Paper/dp/B00O9SP4JG?ref_=ast_sto_dp&th=1)     
 
 **Smoothie Makers (Not Tested)**
 - [Reemix Smoothie Maker](https://www.amazon.com/Reemix-Smoothie-Professional-Container-Stainless/dp/B0BK8QWHYD)
@@ -241,7 +244,8 @@
 ## Tools      
 ### Products        
 - [Dewalt 20V MAX XR 1/2 Cordless Hammer DCD1007B](https://www.amazon.com/DEWALT-Cordless-Hammer-Drill-DCD1007B/dp/B0D8TM5MW4#customerReviews)     
-- [DEWALT XR POWER DETECT 1/2-in DCD998W1](https://www.lowes.com/pd/DEWALT-XR-POWER-DETECT-1-2-in-20-Volt-Max-Variable-Speed-Brushless-Cordless-Hammer-Drill-1-Battery-Included/1002097694)     
+- [DEWALT XR POWER DETECT 1/2-in DCD998W1](https://www.lowes.com/pd/DEWALT-XR-POWER-DETECT-1-2-in-20-Volt-Max-Variable-Speed-Brushless-Cordless-Hammer-Drill-1-Battery-Included/1002097694)
+- [Screw Extractor](https://www.amazon.com/dp/B0BTNT4225?ref=cm_sw_r_cso_wa_apan_dp_1859AD30KDXKYDZK6V5P&ref_=cm_sw_r_cso_wa_apan_dp_1859AD30KDXKYDZK6V5P&social_share=cm_sw_r_cso_wa_apan_dp_1859AD30KDXKYDZK6V5P)     
 
 ### Companies         
 - [Knipex](https://www.knipex-tools.com/) (Germany)    
