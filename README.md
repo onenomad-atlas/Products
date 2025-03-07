@@ -253,7 +253,8 @@
 - [DEWALT XR POWER DETECT 1/2-in DCD998W1](https://www.lowes.com/pd/DEWALT-XR-POWER-DETECT-1-2-in-20-Volt-Max-Variable-Speed-Brushless-Cordless-Hammer-Drill-1-Battery-Included/1002097694)
 - [Screw Extractor](https://www.amazon.com/dp/B0BTNT4225?ref=cm_sw_r_cso_wa_apan_dp_1859AD30KDXKYDZK6V5P&ref_=cm_sw_r_cso_wa_apan_dp_1859AD30KDXKYDZK6V5P&social_share=cm_sw_r_cso_wa_apan_dp_1859AD30KDXKYDZK6V5P)
 - [#8 x 2-1/2 in. Gold Phillips Bugle Screw](https://www.homedepot.com/p/Grabber-8-x-2-1-2-in-Gold-Phillips-Bugle-Screw-1-lb-per-Box-23235/203111653)
-- [2 in. x 6 in. x 16 ft. #2 Premium Grade Southern Yellow Pine Dimensional Lumber](https://www.homedepot.com/p/2-in-x-6-in-x-16-ft-2-Premium-Grade-Southern-Yellow-Pine-Dimensional-Lumber-370129/100065992)      
+- [2 in. x 6 in. x 16 ft. #2 Premium Grade Southern Yellow Pine Dimensional Lumber](https://www.homedepot.com/p/2-in-x-6-in-x-16-ft-2-Premium-Grade-Southern-Yellow-Pine-Dimensional-Lumber-370129/100065992)
+- [2 in. x 4 in. x 92-5/8 in. Prime Whitewood Stud](https://www.homedepot.com/p/2-in-x-4-in-x-92-5-8-in-Prime-Whitewood-Stud-769887148204/333309702)     
 
 ### Companies         
 - [Knipex](https://www.knipex-tools.com/) (Germany)    
