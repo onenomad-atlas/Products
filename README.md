@@ -11,7 +11,8 @@
 ### [💊 Medicine and Vitamins](#Medicine-and-Vitamins)  
 ### [🧑‍⚕️ Personal](#Personal)  
 ### [🐜 Pest Control](#Pest-Control)  
-### [💦 Sprinkler System](#Sprinkler-System)  
+### [💦 Sprinkler System](#Sprinkler-System)   
+### [✈️ Travel](#Travel)
 ### [📱 Tech](#Tech)  
 ### [🔧 Tools](#Tools)   
 ### [🌿 Yard](#Yard)  
@@ -79,7 +80,8 @@
 - [SparkPod 23-Stage Shower Filter](https://www.amazon.com/dp/B07SSVZHBZ?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)     
 - [HammerHead Handheld Bidet](https://www.amazon.com/dp/B086WKH43D?ref=ppx_yo2ov_dt_b_fed_asin_title)   
 - [SparkPod Ultra Shower Filter](https://www.amazon.com/dp/B0B42C1Z27?ref=ppx_yo2ov_dt_b_fed_asin_title)      
-- [YASONIC Corner Shower Caddy](https://www.amazon.com/dp/B0BB7PBPC3?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)       
+- [YASONIC Corner Shower Caddy](https://www.amazon.com/dp/B0BB7PBPC3?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
+- [JQK Faucet Areator](https://www.amazon.com/dp/B07KF5B438?ref=cm_sw_r_cso_wa_apan_dp_2ZZ6BBWYNFMY2GCCN5Q6_1&ref_=cm_sw_r_cso_wa_apan_dp_2ZZ6BBWYNFMY2GCCN5Q6_1&social_share=cm_sw_r_cso_wa_apan_dp_2ZZ6BBWYNFMY2GCCN5Q6_1&th=1)     
 - [Delta 3-Way Shower Diverter](https://www.amazon.com/dp/B0064TXMJM?ref=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&ref_=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&social_share=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&starsLeft=1&th=1)
 - [Delta Showerhead](https://www.amazon.com/dp/B0CLPXLKBG?ref=cm_sw_r_apan_dp_54V46N1P915RKT8Q2FRG&ref_=cm_sw_r_apan_dp_54V46N1P915RKT8Q2FRG&social_share=cm_sw_r_apan_dp_54V46N1P915RKT8Q2FRG&peakEvent=5&starsLeft=1&skipTwisterOG=1&th=1)   
 - [Zalerock Showerhead](https://www.homedepot.com/p/Zalerock-Rainfall-1-Spray-Square-10-in-Shower-System-Shower-Head-with-Handheld-in-Chrome-Valve-Included-KSA021/319582987)
@@ -198,7 +200,8 @@
 ## Personal     
 ### Products      
 - [10-Slot Watch Case](https://www.amazon.com/dp/B0B8SDHPMR?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
-- [Nose & Ear Hair Trimmer](https://www.amazon.com/Groom-Mate-Platinum-Nose-Trimmer/dp/B000EBFJXS/ref=sr_1_5?crid=M98KCQI9LAWX&dib=eyJ2IjoiMSJ9.beyjyA450EibcAnUXcmgyxm_JbR8uHMzYXbwigCXsodT5n5miZrr-5jhtmydFBSf_9wl3bB_cvH0PWzXTfA1thE0M_BAg6iJ6GR_pfGr3kbSOPPQYp6hIOUnoSFdIPokt4-J16TDNz0_l9_rJ2oQ68CTfyW3ezdZj1TfjRgQqBFdYxHUQNm9pN5JfD8MUYc-2fAZ5te_olD0tmJ92Uj7G509HFOg7I06ZDhl8DDxM4lej1lupY2a37oeVwZQSkx0mdGMJm-v3-BQcafnDbk25kj4YTa3rfnhv4wXhqIzX47_YxO3J9pJ3xoXEEQMAtDjoXRvYssWU8SyhfQo104bVo6-LJnJzIwNJnVbSjI6yPrU225uiYEEEkXHS-qI_Me2iPaN5pb1HpWSpG-OuA2zZXdeqYXV2iJXvunpQvMAFPPoVbX6UFGNTk5CEfymXyjC.WC_fPMoooBj_WQOT7Pz2WQ40M1eLtpy2KQPN00clIhw&dib_tag=se&keywords=groom+mate&qid=1739327194&sprefix=groom+mate%2Caps%2C121&sr=8-5#customerReviews)
+- [Nose & Ear Hair Trimmer](https://www.amazon.com/Groom-Mate-Platinum-Nose-Trimmer/dp/B000EBFJXS/ref=sr_1_5?crid=M98KCQI9LAWX&dib=eyJ2IjoiMSJ9.beyjyA450EibcAnUXcmgyxm_JbR8uHMzYXbwigCXsodT5n5miZrr-5jhtmydFBSf_9wl3bB_cvH0PWzXTfA1thE0M_BAg6iJ6GR_pfGr3kbSOPPQYp6hIOUnoSFdIPokt4-J16TDNz0_l9_rJ2oQ68CTfyW3ezdZj1TfjRgQqBFdYxHUQNm9pN5JfD8MUYc-2fAZ5te_olD0tmJ92Uj7G509HFOg7I06ZDhl8DDxM4lej1lupY2a37oeVwZQSkx0mdGMJm-v3-BQcafnDbk25kj4YTa3rfnhv4wXhqIzX47_YxO3J9pJ3xoXEEQMAtDjoXRvYssWU8SyhfQo104bVo6-LJnJzIwNJnVbSjI6yPrU225uiYEEEkXHS-qI_Me2iPaN5pb1HpWSpG-OuA2zZXdeqYXV2iJXvunpQvMAFPPoVbX6UFGNTk5CEfymXyjC.WC_fPMoooBj_WQOT7Pz2WQ40M1eLtpy2KQPN00clIhw&dib_tag=se&keywords=groom+mate&qid=1739327194&sprefix=groom+mate%2Caps%2C121&sr=8-5#customerReviews)     
+- [Suavecito Pomade Firme](https://www.amazon.com/dp/B017S3LX8O?ref=ppx_pop_mob_ap_share&th=1)     
 - [Double Edge Safety Razor Blades](https://www.amazon.com/Feather-Double-Edge-Razor-Blades/dp/B001G5HZCY/ref=sr_1_6?crid=1ECY42EK9IJ14&dib=eyJ2IjoiMSJ9.KPSLBHcSH6qwZJKnH8FA1RXRmvYClNs-B-5WtLmF7mMet4lijm3rI-loqk52_flMG-bN5oKvXIS0qJY9ZWfUuvaYfYOaEz8WPL0-SejrC4mYoJdIJobJtz1yA4pKZklfKXp7nQ0WZvzOWVgL1g1XBIaPuqQPb7e2fcYIMKIM9DtbviHRtPfPdakiUPPgyVE2pl7mis1sMWmMt2IBKkGRnEtAQsJQVADfmI4FNwcia1aZz_P4kdwcQrFqJVU9Xw5DFeq2OP0OAyt7lcRWWZB9zfzYJzAf7wKqfIvgDzLnL8iAZ2wcKx5fxgLT3BSUunTedcPAOGdtQnVfRwzrxHdXhVka45rzAMl-uEmdzcMzURtVBuVilD0q5sm8udgLjK25xWHVA1t9Tu7h9DHjBwaLdiKHCPGOWfDhPLh8kmrxw02wqBFYbXmRVsUJhntKaE8N.Ib5d-G_6soe2En8DtRnu57XCPnp0fij5WEXEJ5VLLVY&dib_tag=se&keywords=feather+blades&qid=1738879667&sprefix=feather+blade%2Caps%2C139&sr=8-6)    
 
 
@@ -212,7 +215,10 @@
 - [Hunter Pop-up Body w/ Check Valve](https://www.ewingoutdoorsupply.com/44011340-pro-spray-4-in-pop-up-body-w-check-valve)    
 - [Gorilla Easy Connect for Pipes](https://www.homedepot.com/b/Outdoors-Garden-Center-Watering-Irrigation-Watering-Essentials-Hose-Connectors/GORILLA-EASY-CONNECT/N-5yc1vZbx5nZyln)
 - [Watts Pressure Vacuum Breaker](https://www.homedepot.com/p/Watts-1-in-Pressure-Vacuum-Breaker-800M4-QT/100023435)
-- [Gardern Hose Quick Connector](https://www.amazon.com/dp/B086PZG7S6?ref=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&ref_=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&social_share=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&starsLeft=1&skipTwisterOG=1&newOGT=1&th=1)    
+- [Gardern Hose Quick Connector](https://www.amazon.com/dp/B086PZG7S6?ref=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&ref_=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&social_share=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&starsLeft=1&skipTwisterOG=1&newOGT=1&th=1)
+- [Febco for Vacuum Breakers and Backflow Preventers](https://www.amazon.com/dp/B002NKURVM?ref=ppx_pop_mob_ap_share&th=1)
+
+## Travel   
 
 ## Tech      
 ### Products       
