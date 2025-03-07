@@ -61,6 +61,8 @@
     - Original
 - **Khadlaj**
     - Mahasin Abaya
+- **THE DUA BRAND**
+    - Une Rose Pakistani
 - **Zegna**
     - Indonesian Oud
 - **Boadicea the Victorious**
