@@ -58,7 +58,9 @@
 - **Roja**
     - Roja Dove Amber Aoud
 - **Clive Christian**
-    - Original
+    - Original Series   
+- **Maison Francis Kurkdjian**
+    - Baccarat Rouge 540
 - **Khadlaj**
     - Mahasin Abaya
 - **THE DUA BRAND**
