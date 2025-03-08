@@ -52,6 +52,7 @@
     - Mukhallat Fazza
     - Attar Gleam
     - Different
+    - Dahn Al Oud Royal Cambodi
 - **Arabian Oud**
     - Mukhalat Nagdy Malaky
 - **Creed**
@@ -64,7 +65,7 @@
 - **Maison Francis Kurkdjian**
     - Baccarat Rouge 540
 - **Khadlaj**
-    - Mahasin Abaya
+    - Mahasin Abaya (Air Freshener) 
 - **THE DUA BRAND**
     - Une Rose Pakistani
 - **Zegna**
