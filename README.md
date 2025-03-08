@@ -102,7 +102,8 @@
 - [Zalerock Showerhead](https://www.homedepot.com/p/Zalerock-Rainfall-1-Spray-Square-10-in-Shower-System-Shower-Head-with-Handheld-in-Chrome-Valve-Included-KSA021/319582987)
 - [Zalerock Showerhead (2)](https://www.homedepot.com/p/Zalerock-Rain-Square-Single-Handle-1-Spray-Shower-Faucet-1-8-GPM-w-Valve-12in-Dual-Shower-Heads-Shower-System-in-Brushed-Nickel-HAZ012/319859199)   
 - [Pinwin Showerhead](https://www.amazon.com/dp/B09D39JFYB?ref_=cm_sw_r_apan_dp_4RNNY109E5XKXEQ7DNMM&language=en-US&th=1)
-- [Delta Faucet Shower Arm Diverter for Hand Shower](https://www.amazon.com/dp/B0064TXLHA?ref=cm_sw_r_apan_dp_JBFCMF2KMTNG1GQAGEXN&ref_=cm_sw_r_apan_dp_JBFCMF2KMTNG1GQAGEXN&social_share=cm_sw_r_apan_dp_JBFCMF2KMTNG1GQAGEXN&peakEvent=5&starsLeft=1&skipTwisterOG=1&th=1)  - [Auraglow Teeth Whitening Kit](https://www.amazon.com/dp/B00YI5VJW6?maas=maas_adg_api_593868219682544607_static_9_218&ref_=aa_maas&aa_campaignid=wyrd_963713c77cabf2b_5&aa_adgroupid=wyrd_0cc13a7fc46ae06_5&aa_creativeid=wyrd_da6f14ce66717dc_5&th=1)      
+- [Delta Faucet Shower Arm Diverter for Hand Shower](https://www.amazon.com/dp/B0064TXLHA?ref=cm_sw_r_apan_dp_JBFCMF2KMTNG1GQAGEXN&ref_=cm_sw_r_apan_dp_JBFCMF2KMTNG1GQAGEXN&social_share=cm_sw_r_apan_dp_JBFCMF2KMTNG1GQAGEXN&peakEvent=5&starsLeft=1&skipTwisterOG=1&th=1)        
+- [Auraglow Teeth Whitening Kit](https://www.amazon.com/dp/B00YI5VJW6?maas=maas_adg_api_593868219682544607_static_9_218&ref_=aa_maas&aa_campaignid=wyrd_963713c77cabf2b_5&aa_adgroupid=wyrd_0cc13a7fc46ae06_5&aa_creativeid=wyrd_da6f14ce66717dc_5&th=1)      
 
 ## Bed     
 
