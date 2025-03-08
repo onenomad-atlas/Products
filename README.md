@@ -52,6 +52,8 @@
     - Mukhallat Fazza
     - Attar Gleam
     - Different
+- **Arabian Oud**
+    - Mukhalat Nagdy Malaky
 - **Creed**
     - Aventus
     - Absolu Aventus
