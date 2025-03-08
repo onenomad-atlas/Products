@@ -107,7 +107,7 @@
 - [Auraglow Teeth Whitening Kit](https://www.amazon.com/dp/B00YI5VJW6?maas=maas_adg_api_593868219682544607_static_9_218&ref_=aa_maas&aa_campaignid=wyrd_963713c77cabf2b_5&aa_adgroupid=wyrd_0cc13a7fc46ae06_5&aa_creativeid=wyrd_da6f14ce66717dc_5&th=1)     
 
 
-## Beauty    
+## Beauty
 - [Parlux 385 Powerlight Hair Dryer](https://www.amazon.com/Powerlight-Ceramic-Hair-Designs-Attachment/dp/B08FF7W2VH?th=1)  
 - [ELLA BELLA Professional Ionic Hair Dryer](https://www.amazon.com/dp/B0D6LN1B1D?maas=maas_adg_api_592580855929139357_static_9_129&ref_=aa_maas&tag=maas&aa_campaignid=lv_ZuHzNZ1MzZMltop6R4&aa_adgroupid=lv_xCmn2gMm9GevDgnY2T&aa_creativeid=lv_q7unjJiRpua8DTVJxK&m=A2XKN5FIA4UV25&th=1)     
   
