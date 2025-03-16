@@ -54,8 +54,7 @@
 - [Loake](https://www.loake.co.uk/) (UK)   
 - [Wm. Lennon](https://www.wmlennon.com/) (UK)
 
-### Products
-**Products**     
+### Products     
 - [KORE Men’s Top-Grain Leather Track Belts](https://www.amazon.com/Top-Grain-Leather-Express-Gunmetal-Buckle/dp/B01LWX5WEZ?ref_=ast_sto_dp)    
   
 ## Attars and Perfumes    
