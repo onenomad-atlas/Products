@@ -2,7 +2,8 @@
 
 **Resources**   
 - [Personal BIFL Bible](https://docs.google.com/document/d/18mNjTbQo2lAsooXA022Qwe60rrBn41IuwAsaUGqc2HM/edit?pli=1&tab=t.0#heading=h.67m41mp1yhzi) - Personal Purchasing Bible       
-- [Lorria](https://www.looria.com/) - The Internet's Favorite Products In One Place    
+- [Lorria](https://www.looria.com/) - The Internet's Favorite Products In One Place
+- [buyitforlife](https://buyitforlife.com/)   
 
 ### [👕 Apparel](#Apparel)  
 ### [🧴 Attars and Perfumes](#Attars-and-Perfumes)   
