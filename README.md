@@ -259,6 +259,7 @@
 - [Sonder Wood Cutting Board](https://www.amazon.com/Sonder-Los-Angeles-Non-Slip-20x15x1-5/dp/B0BMK5MQ2Y?asc_source=&asc_campaign=646cf1ea9d819fb102d006cc%7Cfy5SxbYYCKDMKqMafHzJog&asc_refurl=https%3A%2F%2Fwww.wired.com%2Fstory%2Fbuy-it-for-life&tag=w050b-20&ascsubtag=646cf1ea9d819fb102d006cc&th=1)
 - [Knife Sharpening Stone Set](https://www.amazon.com/Sharpening-HMPLL-Whetstone-Professional-Flattening/dp/B0913DMDP4?asc_source=&asc_campaign=646cf1ea9d819fb102d006cc%7C6VBZT8Gd6mvYoRZiM3t27h&asc_refurl=https%3A%2F%2Fwww.wired.com%2Fstory%2Fbuy-it-for-life&tag=w050b-20&ascsubtag=646cf1ea9d819fb102d006cc)
 - [Cuisinart Food Processor 14-Cup](https://www.amazon.com/Cuisinart-DFP-14BCNY-Processor-Brushed-Stainless/dp/B01AXM4WV2?crid=1V4NFFR7OF0A9&keywords=cuisinart%2Bdfp-14bcny&qid=1703975426&sprefix=cuisinart%2Bdfp-14bcny%2Caps%2C99&sr=8-2&ufe=app_do%3Aamzn1.fos.f5122f16-c3e8-4386-bf32-63e904010ad0&th=1&linkCode=ll1&tag=buyitforlife08-20&linkId=cda93a8d63b308716a73239d76348fd1&language=en_US&ref_=as_li_ss_tl)
+- [Fiskars Fast-Prep Kitchen Shears (7 Inch)](https://www.amazon.com/Fiskars-All-purpose-Kitchen-Shears-510041-1001/dp/B0108YGV8C?linkCode=ll1&tag=buyitforlife08-20&linkId=8f7ead3e0823967f936e005fdea5ba9f&language=en_US&ref_=as_li_ss_tl&th=1) 
 
 **Smoothie Makers (Not Tested)**
 - [Reemix Smoothie Maker](https://www.amazon.com/Reemix-Smoothie-Professional-Container-Stainless/dp/B0BK8QWHYD)
@@ -352,5 +353,6 @@
 - [Grampa's Weeder](https://www.amazon.com/Grampas-Weeder-CW-01-Original-Remover/dp/B001D1FFZA?source=ps-sl-shoppingads-lpcontext&ref_=fplfs&psc=1&smid=A3RXQF4NI8HCLF&gQT=1)    
 - [Southern Ag Surfactant for Herbicides](https://www.amazon.com/Southern-Ag-Surfactant-Herbicides-Non-Ionic/dp/B004XDHRCE/ref=asc_df_B004XDHRCE?mcid=263de240390c3aa3b68aaa00457cf414&tag=hyprod-20&linkCode=df0&hvadid=693713553292&hvpos=&hvnetw=g&hvrand=5493298058360403992&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-329402406474&th=1)
     - 1 Teaspoon per gallon
-- [Gorilla Carts Heavy Duty Poly Utility Dump](https://www.amazon.com/Gorilla-Carts-GOR6PS-Heavy-Duty-Convertible/dp/B01BECQF6K?crid=2U8MYKJJUSDWS&keywords=Gorilla%2BCart&qid=1704345534&sprefix=gorilla%2Bcar%2Caps%2C104&sr=8-3&ufe=app_do%3Aamzn1.fos.f5122f16-c3e8-4386-bf32-63e904010ad0&linkCode=ll1&tag=buyitforlife08-20&linkId=5a701f240f6d3f3fbd95584cb0678a07&language=en_US&ref_=as_li_ss_tl&th=1)  
+- [Gorilla Carts Heavy Duty Poly Utility Dump](https://www.amazon.com/Gorilla-Carts-GOR6PS-Heavy-Duty-Convertible/dp/B01BECQF6K?crid=2U8MYKJJUSDWS&keywords=Gorilla%2BCart&qid=1704345534&sprefix=gorilla%2Bcar%2Caps%2C104&sr=8-3&ufe=app_do%3Aamzn1.fos.f5122f16-c3e8-4386-bf32-63e904010ad0&linkCode=ll1&tag=buyitforlife08-20&linkId=5a701f240f6d3f3fbd95584cb0678a07&language=en_US&ref_=as_li_ss_tl&th=1)
+- [Fiskars Bypass Pruning Shears](https://www.amazon.com/Fiskars-91095935J-Bypass-Pruning-Shears/dp/B00002N66H?th=1&linkCode=ll1&tag=buyitforlife08-20&linkId=e01379c4e07174ffec48ca57212019b4&language=en_US&ref_=as_li_ss_tl) 
 
