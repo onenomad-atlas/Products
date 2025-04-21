@@ -324,7 +324,8 @@
 - [Paint Gun](https://www.amazon.com/AwxryoX-Upgrades-Cordless-Brushless-Furniture/dp/B0DHRBB1H6?ref_=ast_sto_dp)
 - [Electric Pressure Washer 4200 PSI](https://www.amazon.com/dp/B0D739PX62?ref=ppx_pop_mob_ap_share&th=1)
 - [Reciprocating Saw Blade for Thick Metal Cutting](https://www.homedepot.com/p/DIABLO-9-in-8-TPI-Steel-Demon-Carbide-Reciprocating-Saw-Blade-for-Thick-Metal-Cutting-DS0908CF/205426168)
-- [Ken Onion Knife Sharpener Tool](https://www.amazon.com/Work-Sharp-Onion-Knife-Sharpener/dp/B0CXG57C4F?tag=googhydr-20&source=dsa&hvcampaign=kitchen&gclid=Cj0KCQiAz6q-BhCfARIsAOezPxkRbOtljPF0KHkMhRx3_mC1cr24TqmzPcthGBAFh3ZYgqK4lvQ1qEgaAkxgEALw_wcB&th=1)     
+- [Ken Onion Knife Sharpener Tool](https://www.amazon.com/Work-Sharp-Onion-Knife-Sharpener/dp/B0CXG57C4F?tag=googhydr-20&source=dsa&hvcampaign=kitchen&gclid=Cj0KCQiAz6q-BhCfARIsAOezPxkRbOtljPF0KHkMhRx3_mC1cr24TqmzPcthGBAFh3ZYgqK4lvQ1qEgaAkxgEALw_wcB&th=1)
+- [Seamless Knit Safety Work Gloves](https://www.amazon.com/HexArmor-Seamless-Gloves-Resistance-Medium/dp/B07FSL924Z/ref=sr_1_8?crid=D363SY7YEZ27&dib=eyJ2IjoiMSJ9.JVdj5RigvNg5IaDCK-9EMG1IBrLVeFtD9B7MeRa9gdH6ls9efCjGQd_BsCAipc2p7C1QGczYkszgGV-0gO_rv2kchWjMoPFZmWH7QSm7TaOabKbTcU4a-UajWvPsIeBKZ-mo2dLE89iSVv1B3iS5A7WUMpgsK2DcpW4rNEycJ0jYKu7bP4Y47VRE3PLorvLtoWCP6SE0XRSV2sLSlV4hWLTvmBVI_Jk3-cTeyRRfpMZDgTgMnZ2Q9rYXdfUjX81zrv9tpvq5jwofP5H7d5eL_aUL1zvMpQzGW-pjVZc2NdM.0dlnmFkn46fqw2siM7vbWLLxxkp2IUHzTqN6jsN53cU&dib_tag=se&keywords=hexarmor%2Bwork%2Bgloves&linkCode=ll2&linkId=f37bb6ef9f80c6a1fd5cf6e82e632f89&qid=1745028928&sprefix=hexarmor%2Bwork%2Bgloves%2Caps%2C102&sr=8-8&th=1&psc=1)  
 
 ### Companies         
 - [Knipex](https://www.knipex-tools.com/) (Germany)    
@@ -346,6 +347,6 @@
 - [Square Catch Basin Drain](https://www.homedepot.com/p/NDS-9-in-Square-Catch-Basin-Drain-Kit-2-Opening-Basin-Black-Plastic-Grate-2-Outlet-Adapters-and-1-Outlet-Plug-4-Pack-900BKIT-4PK/313564960#overlay)     
 - [Grampa's Weeder](https://www.amazon.com/Grampas-Weeder-CW-01-Original-Remover/dp/B001D1FFZA?source=ps-sl-shoppingads-lpcontext&ref_=fplfs&psc=1&smid=A3RXQF4NI8HCLF&gQT=1)    
 - [Southern Ag Surfactant for Herbicides](https://www.amazon.com/Southern-Ag-Surfactant-Herbicides-Non-Ionic/dp/B004XDHRCE/ref=asc_df_B004XDHRCE?mcid=263de240390c3aa3b68aaa00457cf414&tag=hyprod-20&linkCode=df0&hvadid=693713553292&hvpos=&hvnetw=g&hvrand=5493298058360403992&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-329402406474&th=1)
-    - 1 Teaspoon per gallon      
-
+    - 1 Teaspoon per gallon
+- [Gorilla Carts Heavy Duty Poly Utility Dump](https://www.amazon.com/Gorilla-Carts-GOR6PS-Heavy-Duty-Convertible/dp/B01BECQF6K?crid=2U8MYKJJUSDWS&keywords=Gorilla%2BCart&qid=1704345534&sprefix=gorilla%2Bcar%2Caps%2C104&sr=8-3&ufe=app_do%3Aamzn1.fos.f5122f16-c3e8-4386-bf32-63e904010ad0&linkCode=ll1&tag=buyitforlife08-20&linkId=5a701f240f6d3f3fbd95584cb0678a07&language=en_US&ref_=as_li_ss_tl&th=1)  
 
