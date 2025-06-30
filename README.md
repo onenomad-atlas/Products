@@ -125,6 +125,7 @@
 - [HammerHead Handheld Bidet](https://www.amazon.com/dp/B086WKH43D?ref=ppx_yo2ov_dt_b_fed_asin_title)   
 - [SparkPod Ultra Shower Filter](https://www.amazon.com/dp/B0B42C1Z27?ref=ppx_yo2ov_dt_b_fed_asin_title)      
 - [YASONIC Corner Shower Caddy](https://www.amazon.com/dp/B0BB7PBPC3?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
+- [VALITIC Kojic Acid Dark Spot Remover Soap Bars](https://www.amazon.com/dp/B09MFMCTRK?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)  
 - [Arofa Handheld Bidet Sprayer for Toilet](https://www.amazon.com/Handheld-Toilet-Adjustable-Pressure-Feminine-Stainless/dp/B09W58S91T/ref=sr_1_5?crid=23H8C6DPI1DCE&dib=eyJ2IjoiMSJ9.pH9gPY5mGOf9hQkKLdCLqG5iXwD6K4_kG_agJmICYe7kcRorwShX7K8uTMdKRfm1pkdcpYY2r_hrpKXRULf_bQskxQd6KI1ohihf8uT6xuDn7fZISDiP6hyNTNPchUVL2GxDknVA1KH9NoNWeFlNhVhR7gwv90s4j9K6as9fRiELwCgS3jWj-eXajpWivHAOQAsHjCkrWqal35aFhOAuaqX0fER5R0k4mBBM38O6xF8ghCFfZzvllEuF0Bt9-t_edx9BqRLzbNowJXbRNHsHmZl4uyO8An6hHGd-ezRSnRk.3J2BB3eniVi70c_BYUShiChCkZQ40HGowmjSoMUt6BU&dib_tag=se&keywords=toilet%2Bbidet%2Barofa&qid=1747944898&sprefix=toilet%2Bbidet%2Barofa%2Caps%2C129&sr=8-5&th=1)
 - [JQK Faucet Areator](https://www.amazon.com/dp/B07KF5B438?ref=cm_sw_r_cso_wa_apan_dp_2ZZ6BBWYNFMY2GCCN5Q6_1&ref_=cm_sw_r_cso_wa_apan_dp_2ZZ6BBWYNFMY2GCCN5Q6_1&social_share=cm_sw_r_cso_wa_apan_dp_2ZZ6BBWYNFMY2GCCN5Q6_1&th=1)     
 - [Delta 3-Way Shower Diverter](https://www.amazon.com/dp/B0064TXMJM?ref=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&ref_=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&social_share=cm_sw_r_apan_dp_H9CTBXJNKDMJJGRZCRBK&starsLeft=1&th=1)
@@ -142,6 +143,8 @@
 - [ELLA BELLA Professional Ionic Hair Dryer](https://www.amazon.com/dp/B0D6LN1B1D?maas=maas_adg_api_592580855929139357_static_9_129&ref_=aa_maas&tag=maas&aa_campaignid=lv_ZuHzNZ1MzZMltop6R4&aa_adgroupid=lv_xCmn2gMm9GevDgnY2T&aa_creativeid=lv_q7unjJiRpua8DTVJxK&m=A2XKN5FIA4UV25&th=1)
 - [Stainless Steel Nail Clipper](https://www.amazon.com/EDGE-SS-112-Stainless-Steel-Clipper/dp/B07NDLKQC5/ref=asc_df_B07NDLKQC5?mcid=266b4b9293593c6a9f93b29cc99152b2&tag=hyprod-20&linkCode=df0&hvadid=693033556683&hvpos=&hvnetw=g&hvrand=13345740736598235678&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027776&hvtargid=pla-691950131514&psc=1)
 - [Nose & Ear Hair Trimmer](https://www.amazon.com/Groom-Mate-Platinum-Nose-Trimmer/dp/B000EBFJXS/ref=sr_1_5?crid=M98KCQI9LAWX&dib=eyJ2IjoiMSJ9.beyjyA450EibcAnUXcmgyxm_JbR8uHMzYXbwigCXsodT5n5miZrr-5jhtmydFBSf_9wl3bB_cvH0PWzXTfA1thE0M_BAg6iJ6GR_pfGr3kbSOPPQYp6hIOUnoSFdIPokt4-J16TDNz0_l9_rJ2oQ68CTfyW3ezdZj1TfjRgQqBFdYxHUQNm9pN5JfD8MUYc-2fAZ5te_olD0tmJ92Uj7G509HFOg7I06ZDhl8DDxM4lej1lupY2a37oeVwZQSkx0mdGMJm-v3-BQcafnDbk25kj4YTa3rfnhv4wXhqIzX47_YxO3J9pJ3xoXEEQMAtDjoXRvYssWU8SyhfQo104bVo6-LJnJzIwNJnVbSjI6yPrU225uiYEEEkXHS-qI_Me2iPaN5pb1HpWSpG-OuA2zZXdeqYXV2iJXvunpQvMAFPPoVbX6UFGNTk5CEfymXyjC.WC_fPMoooBj_WQOT7Pz2WQ40M1eLtpy2KQPN00clIhw&dib_tag=se&keywords=groom+mate&qid=1739327194&sprefix=groom+mate%2Caps%2C121&sr=8-5#customerReviews)
+- [Kenra Professional Volume Spray 25 | Super Hold](https://www.amazon.com/dp/B01N2ROL68?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
+- [Got2b Glued Spray Wax](https://www.amazon.com/dp/B08PLFZB89?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
 - [BabylissPRO Nano Titanium Ultra-Thin Hair Straightener](https://www.amazon.com/dp/B0CCWJ5J4S?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
 - [Moroccanoil Perfect Defense Heat Protectant](https://www.amazon.com/dp/B075FBD7CM?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 - [Suavecito Pomade Firme](https://www.amazon.com/dp/B017S3LX8O?ref=ppx_pop_mob_ap_share&th=1)     
@@ -164,7 +167,9 @@
 ### Products         
 - [Saltverk](https://saltverk.com/)    
 - [Franklin's BBQ Sauce](https://shop.franklinbbq.com/products/franklin-barbecue-sauce?srsltid=AfmBOoqc27DZG6w2kAu314uN8FETdV3Vo7ndUfyw_jVcDbRrSvczvK_2)    
-- [Ezekiel Bread](https://www.foodforlife.com/about_us/ezekiel-49)    
+- [Ezekiel Bread](https://www.foodforlife.com/about_us/ezekiel-49)
+- [Parle Melody Chokolate CANDY 100pcs](https://www.amazon.com/dp/7165519580?ref=ppx_yo2ov_dt_b_fed_asin_title)
+- [Frontier Co-op Mexican Fiesta Seasoning](https://www.amazon.com/dp/B0001M10R4?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 
 ## Home       
   
@@ -189,6 +194,10 @@
 
 ### Products      
 - [Amico 25 Pack Recessed Ceiling Light](https://www.amazon.com/Amico-Recessed-Selectable-Ultra-Thin-Downlight/dp/B0D2H9K5QP/ref=sr_1_5?crid=29WIQ9Q5SX62S&dib=eyJ2IjoiMSJ9.khHk3H-2ixshXIXf0xmXgoQUkTK2-8RbSk2LPSeSJ5OtWDtnvTRtG-WaXjN2FiBydDAGXXXD8a8x3rnBvb43cTR0-rc2lAz1izSbESRI2KESpvjBY01zCZ8J7ElcXndzspMYWuLA_aQ7HS80KL6JbWHJskRfPyZuzXk463LL8p_Yc5VGHZIA2gzP6o5YX1Vdi7uImtaizw-3SqzV2WO_O3RblYZA_uiVPgCcriA7lN97EAu6VV6cQ5rCrCuk_g8sDhQeucJy43yDkbHwfNyFe37kBu7wjT6EYc7MxYZfrcDmT9SKU9GtvKhLTLT1ZoWOmWvv5pw6YUmtpzaSksocYX5nkwQwn-6_d8uY_RAN4ZfevRCLL3K57RAbpcjl_ioxtWRweUlcFP22JQB0r0_r3h7ySv-FgYy7zQe9JAhNw2Dq8wfbWFf1C5Sqp8JyrzpA.-su4W7XVzq2uZ1uy84wHZZ8r7GFCvatosJLkTNR29JM&dib_tag=se&keywords=Amico%2B24%2BPack%2B6%2BInch%2B5CCT%2BLED%2BRecessed%2BCeiling%2BLight%2Bwith%2BNight%2BLight%2C%2B2700K%2F3000K%2F3500K%2F4000K%2F5000K%2BSelectable%2BUltra-Thin%2BRecessed%2BLighting%2C%2B12W%3D110W%2C%2B1100LM%2C%2BDimmable%2BCanless%2BWafer%2BDownlight%2BETL%26FCC&qid=1740002918&sprefix=amico%2B24%2Bpack%2B6%2Binch%2B5cct%2Bled%2Brecessed%2Bceiling%2Blight%2Bwith%2Bnight%2Blight%2C%2B2700k%2F3000k%2F3500k%2F4000k%2F5000k%2Bselectable%2Bultra-thin%2Brecessed%2Blighting%2C%2B12w%2B110w%2C%2B1100lm%2C%2Bdimmable%2Bcanless%2Bwafer%2Bdownlight%2Betl%26fcc%2Caps%2C123&sr=8-5&th=1)
+- [10 Pack 11-3/10" Hole Center Cabinet Pulls Satin Nickel Drawer Handles](https://www.amazon.com/dp/B078YR831V?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
+- [KOOFIZO Wide Cabinet Handle](https://www.amazon.com/dp/B0998DSQR7?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
+- [Ravinte 60 Pack 5 Inch Kitchen Square](https://www.amazon.com/dp/B08FJ429FZ?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
+- [12 Pack Ultra Thin Cabinet Door Catch](https://www.amazon.com/dp/B0BSBSVHYJ?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 - [Boveda 75% Two-Way Humidity Control Packs](https://www.amazon.com/dp/B00JV27MD6?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 - [LSSPAID Bar Stools Set of 2](https://www.amazon.com/dp/B083JS34Z9?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 - [Elfa Cabinet-Sized Mesh Closet Drawers White](https://www.containerstore.com/s/elfa/best-selling-solutions/drawer-units/elfa-cabinet-closet-drawers/123d?productId=11021262) 
@@ -255,11 +264,17 @@
   
 ### Products      
 - [Grill Tongs](https://www.homedepot.com/p/Weber-Precision-Grill-Tongs-6768/317178669?source=shoppingads&locale=en-US&srsltid=AfmBOoqPoAwiIO-t6zgYzS6WnyS0ukijfQwdECOZIWun0X76Qnvg1gxYluk&gQT=2#overlay)
+- [Hiware 12-Piece Demitasse Espresso Spoons](https://www.amazon.com/dp/B01KC6A5RY?ref=ppx_yo2ov_dt_b_fed_asin_title) 
 - [Ice Cream Scoop](https://www.amazon.com/Zeroll-Original-Conductive-Aluminum-Release/dp/B0002U33RU/ref=asc_df_B0002U33RU?mcid=ceac575867a7307c99e3ca2fbac88879&tag=hyprod-20&linkCode=df0&hvadid=693071387716&hvpos=&hvnetw=g&hvrand=9660746868208320618&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027776&hvtargid=pla-305573577960&th=1)
 - [Soap Dispenser for Kitchen Sink](https://www.amazon.com/Dispenser-Kitchen-Brushed-Countertop-Extension/dp/B085CJRWB7/ref=sr_1_8?crid=333MRQOB0LBE0&dib=eyJ2IjoiMSJ9.O0VbmQlMGX2fsQT2paYAKjPVoX8wtlSImgXGqLHhMLEoqu2OK22uh8-IvJhqz_eV1BIqYR92XsZfilNnZ58ABoV5IISJrSTpU0ssQEJQ2fo37jRtJ4pZ3y1nRu7o2YlTKyQhXYIBaMfiNn-0dgGsQL_UaYoEHUfn_95ePIQgWXqspY5dpovwGAj95ftjcmOspWXlaPadLC18M8Mt-Vk_NzgC2lGagRGLeG3KX2zFYHDNfYaGFoKAtpHYdT1chpTdlChDmmVXpr-mECY5GTakytyNtwUegkRTMLIPGW4HDpA.Pu7GBrtuF4IOa4_hswwEBQo0nUAn2Od7YlxojO68PAQ&dib_tag=se&keywords=pump%2Bsoap%2Bdispenser%2Bkitchen&qid=1747945145&sprefix=pump%2Bsoap%2B%2Caps%2C148&sr=8-8&th=1)
+- [IKTCH 30 Inch Under Cabinet Range Hood with 900-CFM](https://www.amazon.com/dp/B07SFFLX3Z?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
+- [Stainless Steel Stove Gap Cover 2 Packs](https://www.amazon.com/dp/B0CQC8QGV1?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
+- [50 Pack 6.9 Inch Silver Plastic Spoons](https://www.amazon.com/dp/B0CQ4T4WRJ?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 - [Frozen Drink Machine Faucet Seal](https://www.amazon.com/Auger-Shaft-Seal-Faucet-Kit/dp/B0CFNJC779/ref=sr_1_9?crid=1DU0HSQYJBOE5&dib=eyJ2IjoiMSJ9.7rGGyTf0yq6VgH04BPrwDm6RqiSpAY-qlni47O-LSjcN2qTy5t3axnwW7N3gNO3JB4CbNwGqXwnUa5rBeKknYCQJn9OdAtnzWKxEBUleqWqa3w45x7Azh7mqWKc8bIWeaB9Q-NPOHtghcZUCkaZRc3jmdMlAT1_EX7i4ijrWZos0FHXy9JJV61BYBeA1-zSoaSHTOZV8sMD-xEzFWCKHaZzAABupgHLu6nB2U268cr7fVOAgsXSpZm_tXZ1pcm_HkKDwgP2EGflkicA5Q5c6mg.6FdcZ3m5BmlOOil-QsPN0rNBc9-3QJkcfyvmiIjJUbo&dib_tag=se&keywords=slushy%2BMACHINE%2BPARTS%2BFAUCET%2BSEAL&qid=1747184815&sprefix=slushy%2Bmachine%2Bparts%2Bfaucet%2Bseal%2Caps%2C105&sr=8-9&th=1)
 - [Can Opener](https://www.amazon.com/Swing-Way-407BK-Portable-Opener/dp/B001CDEFK0?source=ps-sl-shoppingads-lpcontext&ref_=fplfs&smid=A3C4EEF1TM2LGE&gQT=1&th=1)
-- [French Press Coffee Maker](https://www.amazon.com/Bodum-Chambord-French-Coffee-Chrome/dp/B00008XEWG/ref=asc_df_B00008XEWG?mcid=b60ac576f93338cfaa52a4419b285dc5&hvocijid=505262060063409999-B00008XEWG-&hvexpln=73&tag=hyprod-20&linkCode=df0&hvadid=721245378154&hvpos=&hvnetw=g&hvrand=505262060063409999&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027776&hvtargid=pla-2281435180538&th=1)  
+- [French Press Coffee Maker](https://www.amazon.com/Bodum-Chambord-French-Coffee-Chrome/dp/B00008XEWG/ref=asc_df_B00008XEWG?mcid=b60ac576f93338cfaa52a4419b285dc5&hvocijid=505262060063409999-B00008XEWG-&hvexpln=73&tag=hyprod-20&linkCode=df0&hvadid=721245378154&hvpos=&hvnetw=g&hvrand=505262060063409999&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027776&hvtargid=pla-2281435180538&th=1)
+- [600 Pieces 1.25 Inch Mini Foil Metallic Cupcake Liners](https://www.amazon.com/dp/B07PJ3N52J?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
+- [200PCS Gold Plastic Plate](https://www.amazon.com/dp/B0CCRXNFPF?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 - [Nordic Ware Naturals Half Sheet Pan](https://www.amazon.com/Nordic-Ware-Natural-Aluminum-Commercial/dp/B0049C2S32?tag=bp_links-20&th=1)
 - [EZ-DUZ-IT 3028 Deluxe Can Opener with Grips](https://www.walmart.com/ip/EZ-DUZ-IT-Can-Opener/45777327?selected=true&clickid=Xvhzva22lxycTElXi8RS1X6RUksU94Whrxxy040&irgwc=1&sourceid=imp_Xvhzva22lxycTElXi8RS1X6RUksU94Whrxxy040&veh=aff&wmlspartner=imp_3006986&affiliates_ad_id=565706&campaign_id=9383&sharedid=)
 - [Bialetti Moka Express 6 Cup](https://www.amazon.com/dp/B00004RFRU?tag=bp_links-20&th=1)
@@ -322,7 +337,8 @@
 
 ## Sprinkler System     
 ### Products       
-- [Hunter Pop-up Body w/ Check Valve](https://www.ewingoutdoorsupply.com/44011340-pro-spray-4-in-pop-up-body-w-check-valve)    
+- [Hunter Pop-up Body w/ Check Valve](https://www.ewingoutdoorsupply.com/44011340-pro-spray-4-in-pop-up-body-w-check-valve)
+- [[Febco 905-212 for 765 Vacuum Breakers and Backflow Preventers](https://www.amazon.com/dp/B002NKURVM?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)    
 - [Gorilla Easy Connect for Pipes](https://www.homedepot.com/b/Outdoors-Garden-Center-Watering-Irrigation-Watering-Essentials-Hose-Connectors/GORILLA-EASY-CONNECT/N-5yc1vZbx5nZyln)
 - [Watts Pressure Vacuum Breaker](https://www.homedepot.com/p/Watts-1-in-Pressure-Vacuum-Breaker-800M4-QT/100023435)
 - [Gardern Hose Quick Connector](https://www.amazon.com/dp/B086PZG7S6?ref=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&ref_=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&social_share=cm_sw_r_apan_dp_5WK55G3NQKNFCHFA112C&starsLeft=1&skipTwisterOG=1&newOGT=1&th=1)
@@ -383,6 +399,7 @@
 
 ## Yard & Outdoors      
 ### Products      
+
 
 **Furniture**
 - [Outdoor Aluminum Patio Furniture Set](https://www.amazon.com/dp/B0DBYS38TZ?ref=ppx_yo2ov_dt_b_fed_asin_title)
