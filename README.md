@@ -434,12 +434,11 @@
 ## Yard & Outdoors      
 ### Products      
 
-
 **Furniture**
 - [Outdoor Aluminum Patio Furniture Set](https://www.amazon.com/dp/B0DBYS38TZ?ref=ppx_yo2ov_dt_b_fed_asin_title)
 
-
-- [Bagged Landscape Rock](https://www.homedepot.com/p/Vigoro-0-5-cu-ft-Bagged-Marble-Chip-Landscape-Rock-54141/100583677)    
+**Other** 
+- [Bagged Landscape Rock](https://www.homedepot.com/p/Vigoro-0-5-cu-ft-Bagged-Marble-Chip-Landscape-Rock-54141/100583677)   
 - [Renew Grass and Scrub Spray](https://www.amazon.com/Seymour-20-602-Grass-Shrub-Pristine/dp/B018Y3JRHG/ref=sr_1_1?crid=BG0GDLQUZU89&dib=eyJ2IjoiMSJ9.OiJZ3PdQ1D4mhhcQnV8rty6aPyXplH5cI263hJDRnpGALe1NJjWFGE19Yt-H-LwEpTjWVh0WP4AVr2Ew_y-9gcMg6la5HYorSwPrd2eMe_P_YVlyt9T1M1-6YC976jmPbJz5-5LZZarEups3_aK5SNcfir2Y98kG5iWQunW0aAABNScEu2-TWVLw57biolzkRP1KsWOY6_RFd8wLamHGPfymiuAPS_BaLW08SGMNEXrHvfRLYfSRTm0INTE8eG9A4p1yvGY1lcWI2OG8dViiNsVZApqlsGTBueLW7MhGkcOWVrB2b1-6cb_EvQiKYMNIZ6D9rNIGOscV0aTFMUyWRYolsiJOL2ULZfTsR5Y2OacOCWKSm0ZuWXjEaydi5TXb7jj8jxBGA6-9Jg8r1Qhj6D1IiNDmE40D-L3SiAObCuKn4HwLxGz2H0DDp55MBuRt.f8zMRgTQ8rdcMFR6GRREuEYEyX6gxjRJcGKtFQ-jtWk&dib_tag=se&keywords=renew%2Bgrass&qid=1740003249&sprefix=renew%2Bgrass%2Caps%2C137&sr=8-1&th=1)    
 - [Sedge Hammer Herbicide](https://www.amazon.com/Sedgehammer-1-3-oz/dp/B004GGQ44A) - controls weed and moss
 - [Simple Lawn Solutions Lawn Food](https://www.amazon.com/Advanced-16-4-8-Balanced-NPK-Concentrated/dp/B06XWFL84R?ref_=ast_sto_dp&th=1)
@@ -456,4 +455,3 @@
     - 1 Teaspoon per gallon
 - [Gorilla Carts Heavy Duty Poly Utility Dump](https://www.amazon.com/Gorilla-Carts-GOR6PS-Heavy-Duty-Convertible/dp/B01BECQF6K?crid=2U8MYKJJUSDWS&keywords=Gorilla%2BCart&qid=1704345534&sprefix=gorilla%2Bcar%2Caps%2C104&sr=8-3&ufe=app_do%3Aamzn1.fos.f5122f16-c3e8-4386-bf32-63e904010ad0&linkCode=ll1&tag=buyitforlife08-20&linkId=5a701f240f6d3f3fbd95584cb0678a07&language=en_US&ref_=as_li_ss_tl&th=1)
 - [Fiskars Bypass Pruning Shears](https://www.amazon.com/Fiskars-91095935J-Bypass-Pruning-Shears/dp/B00002N66H?th=1&linkCode=ll1&tag=buyitforlife08-20&linkId=e01379c4e07174ffec48ca57212019b4&language=en_US&ref_=as_li_ss_tl) 
-
