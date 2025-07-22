@@ -23,7 +23,7 @@
 ### [✈️ Travel](#Travel)
 ### [📱 Tech](#Tech)  
 ### [🔧 Tools](#Tools)   
-### [🌿 Yard](#Yard)  
+### [🌿 Yard and Outdoors](#Yard-and-Outdoors)  
 
 
 
@@ -431,7 +431,7 @@
 - [Rockwell](https://getrockwell.com/) (USA)     
 
 
-## Yard & Outdoors      
+## Yard and Outdoors      
 ### Products      
 
 **Furniture**
