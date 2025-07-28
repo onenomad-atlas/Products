@@ -120,7 +120,9 @@
 
 ### Products      
 - [LEKEYE Drain Hair Catcher](https://www.amazon.com/LEKEYE-Catcher-Strainer-Stainless-Protector-Silver/dp/B07SG474HG/ref=sr_1_5?crid=381J0D2ZIP75D&dib=eyJ2IjoiMSJ9.jDBvaTdcrQdf25sVx5OB76BbYoRNnaLztma5v4ydOLR5ku7CnPWdrdWpkCBtqdquNfKnlV0fLGxSgyD7uXkVlskxL0X7gt09bxbMnKfDIxEARmFSiDb4pJp-llGfxYl3Sd83OShkBW1SKFyIG_EH_ryyO5EavxTfiYJSMAt12fI-tdhEJsCVbUQzmUM06X_X9nEnblI3Q-bUVCwtjjXZiIZm2glNwi6PY5XK8Gm96cTbfMshcW3Fxs8GXeAcgnKpzNEflOnAsvtcwakhNMlz1pJJK833Zv8T6BVtPUBLlg14z79lPKUpqYAgeMRx4cBqRPxZ5XA9kx_UYoAqChvChHHFHs4_2gISmJIG_oFLU8FPOZFrbfv3DDqdkOkoIPPsCTLF-vC3vnvgopyUzlfzD86lUckZaX3vKnVQN_VU0_yqGIyWV6hXidkzmjj4bkSt.MlDobtwEfF0CK0aNGy0WR9myoHhw95gwOKIT8uVbSEM&dib_tag=se&keywords=LEKEYE%2BDrain%2BHair%2BCatcher%2FBathtub%2BDrain%2BCover%2FDrain%2BProtector%2Bfor%2BPop-Up%2B%26%2BRegular%2BDrains(Patented%2BProduct)&qid=1740002829&sprefix=lekeye%2Bdrain%2Bhair%2Bcatcher%2Fbathtub%2Bdrain%2Bcover%2Fdrain%2Bprotector%2Bfor%2Bpop-up%2B%26%2Bregular%2Bdrains%2Bpatented%2Bproduct%2B%2Caps%2C225&sr=8-5&th=1)      
-- [Village Naturals Therapy Body Wash](https://www.amazon.com/Village-Naturals-Therapy-Muscle-Foaming/dp/B00J2ZLSBY)     
+- [Village Naturals Therapy Body Wash](https://www.amazon.com/Village-Naturals-Therapy-Muscle-Foaming/dp/B00J2ZLSBY)
+- [Drain Auger](https://www.amazon.com/Plumbing-Adapter-Flexible-Manually-Bathroom/dp/B088FVNC2F?tag=chxyz-20&th=1)
+- [Drain Clog Remover](https://www.amazon.com/35-5inch-Remover-Cleaning-Catcher-Bathroom/dp/B0C3L7FKCQ/ref=zg_bs_g_3226846011_d_sccl_1/143-9228209-7655108?psc=1&tag=chxyz-20)
 - [SparkPod 23-Stage Shower Filter](https://www.amazon.com/dp/B07SSVZHBZ?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)     
 - [HammerHead Handheld Bidet](https://www.amazon.com/dp/B086WKH43D?ref=ppx_yo2ov_dt_b_fed_asin_title)   
 - [SparkPod Ultra Shower Filter](https://www.amazon.com/dp/B0B42C1Z27?ref=ppx_yo2ov_dt_b_fed_asin_title)      
@@ -144,6 +146,7 @@
 - [ELLA BELLA Professional Ionic Hair Dryer](https://www.amazon.com/dp/B0D6LN1B1D?maas=maas_adg_api_592580855929139357_static_9_129&ref_=aa_maas&tag=maas&aa_campaignid=lv_ZuHzNZ1MzZMltop6R4&aa_adgroupid=lv_xCmn2gMm9GevDgnY2T&aa_creativeid=lv_q7unjJiRpua8DTVJxK&m=A2XKN5FIA4UV25&th=1)
 - [Tweezerman Brow Shaping Scissors and Brush](https://www.amazon.com/dp/B000WHYB1A?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 - [Stainless Steel Nail Clipper](https://www.amazon.com/EDGE-SS-112-Stainless-Steel-Clipper/dp/B07NDLKQC5/ref=asc_df_B07NDLKQC5?mcid=266b4b9293593c6a9f93b29cc99152b2&tag=hyprod-20&linkCode=df0&hvadid=693033556683&hvpos=&hvnetw=g&hvrand=13345740736598235678&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027776&hvtargid=pla-691950131514&psc=1)
+- [Philosophy Amazing Grace Lotion](https://philosophy.com/products/amazing-grace-firming-body-emulsion?variant=43879354859774) 
 - [Shark HD430 FlexStyle Air Styling & Drying System](https://www.amazon.com/dp/B0B89P16MC?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 - [Nose & Ear Hair Trimmer](https://www.amazon.com/Groom-Mate-Platinum-Nose-Trimmer/dp/B000EBFJXS/ref=sr_1_5?crid=M98KCQI9LAWX&dib=eyJ2IjoiMSJ9.beyjyA450EibcAnUXcmgyxm_JbR8uHMzYXbwigCXsodT5n5miZrr-5jhtmydFBSf_9wl3bB_cvH0PWzXTfA1thE0M_BAg6iJ6GR_pfGr3kbSOPPQYp6hIOUnoSFdIPokt4-J16TDNz0_l9_rJ2oQ68CTfyW3ezdZj1TfjRgQqBFdYxHUQNm9pN5JfD8MUYc-2fAZ5te_olD0tmJ92Uj7G509HFOg7I06ZDhl8DDxM4lej1lupY2a37oeVwZQSkx0mdGMJm-v3-BQcafnDbk25kj4YTa3rfnhv4wXhqIzX47_YxO3J9pJ3xoXEEQMAtDjoXRvYssWU8SyhfQo104bVo6-LJnJzIwNJnVbSjI6yPrU225uiYEEEkXHS-qI_Me2iPaN5pb1HpWSpG-OuA2zZXdeqYXV2iJXvunpQvMAFPPoVbX6UFGNTk5CEfymXyjC.WC_fPMoooBj_WQOT7Pz2WQ40M1eLtpy2KQPN00clIhw&dib_tag=se&keywords=groom+mate&qid=1739327194&sprefix=groom+mate%2Caps%2C121&sr=8-5#customerReviews)
 - [Kenra Professional Volume Spray 25 | Super Hold](https://www.amazon.com/dp/B01N2ROL68?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
@@ -214,7 +217,9 @@
 - [KOOFIZO Wide Cabinet Handle](https://www.amazon.com/dp/B0998DSQR7?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
 - [Ravinte 60 Pack 5 Inch Kitchen Square](https://www.amazon.com/dp/B08FJ429FZ?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
 - [12 Pack Ultra Thin Cabinet Door Catch](https://www.amazon.com/dp/B0BSBSVHYJ?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
-- [Boveda 75% Two-Way Humidity Control Packs](https://www.amazon.com/dp/B00JV27MD6?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
+- [Boveda 75% Two-Way Humidity Control Packs](https://www.amazon.com/dp/B00JV27MD6?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
+- [Haynes Lubri-Film sanitary lubricant](https://www.amazon.com/Haynes-Lubri-Film-sanitary-lubricant-tube/dp/B007QU2UAA?tag=chxyz-20)
+- [NovaFlex Pro Premium Adhesive Sealant](https://novagard.com/product/novaflex-pro-premium-adhesive-sealant/)
 - [LSSPAID Bar Stools Set of 2](https://www.amazon.com/dp/B083JS34Z9?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 - [Elfa Cabinet-Sized Mesh Closet Drawers White](https://www.containerstore.com/s/elfa/best-selling-solutions/drawer-units/elfa-cabinet-closet-drawers/123d?productId=11021262) 
 - [Brother Wireless Printer](https://www.amazon.com/Brother-HL-L2460DW-Monochrome-Subscription-Replenishment/dp/B0CPL2N5H6?asc_source=&asc_campaign=646cf1ea9d819fb102d006cc%7CfXvdWjgUDNHpuhAz5uuwEC&asc_refurl=https%3A%2F%2Fwww.wired.com%2Fstory%2Fbuy-it-for-life&tag=w050b-20&ascsubtag=646cf1ea9d819fb102d006cc&th=1) 
@@ -282,9 +287,11 @@
   
 ### Products      
 - [Grill Tongs](https://www.homedepot.com/p/Weber-Precision-Grill-Tongs-6768/317178669?source=shoppingads&locale=en-US&srsltid=AfmBOoqPoAwiIO-t6zgYzS6WnyS0ukijfQwdECOZIWun0X76Qnvg1gxYluk&gQT=2#overlay)
+- [The Spice Hunter Garam Masala Blend](https://www.amazon.com/Spice-Hunter-Garam-Masala-Blend/dp/B00BEQONAM?tag=chxyz-20&th=1)
 - [Portable Can Opener](https://www.amazon.com/Swing-Way-407BK-Portable-Opener/dp/B001CDEFK0?tag=chxyz-20&th=1) 
 - [Hiware 12-Piece Demitasse Espresso Spoons](https://www.amazon.com/dp/B01KC6A5RY?ref=ppx_yo2ov_dt_b_fed_asin_title) 
 - [Ice Cream Scoop](https://www.amazon.com/Zeroll-Original-Conductive-Aluminum-Release/dp/B0002U33RU/ref=asc_df_B0002U33RU?mcid=ceac575867a7307c99e3ca2fbac88879&tag=hyprod-20&linkCode=df0&hvadid=693071387716&hvpos=&hvnetw=g&hvrand=9660746868208320618&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027776&hvtargid=pla-305573577960&th=1)
+- [Silicone Oven Mitts](https://www.amazon.com/dp/B00WUDQ61W?linkCode=ssc&creativeASIN=B00WUDQ61W&asc_item-id=amzn1.ideas.1IPEJWJ6FO7MD&ref_=aip_sf_list_spv_ons_d_asin&tag=chxyz-20&th=1) 
 - [Bunn 32268.1001 Faucet Seal for Ultra-1 & Ultra-2 Frozen Drink Machine](https://www.amazon.com/dp/B009ZYXVQ2?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 - [Pro Dough Pastry Scraper](https://www.amazon.com/dp/B08F8PDYRW?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 - [Soap Dispenser for Kitchen Sink](https://www.amazon.com/Dispenser-Kitchen-Brushed-Countertop-Extension/dp/B085CJRWB7/ref=sr_1_8?crid=333MRQOB0LBE0&dib=eyJ2IjoiMSJ9.O0VbmQlMGX2fsQT2paYAKjPVoX8wtlSImgXGqLHhMLEoqu2OK22uh8-IvJhqz_eV1BIqYR92XsZfilNnZ58ABoV5IISJrSTpU0ssQEJQ2fo37jRtJ4pZ3y1nRu7o2YlTKyQhXYIBaMfiNn-0dgGsQL_UaYoEHUfn_95ePIQgWXqspY5dpovwGAj95ftjcmOspWXlaPadLC18M8Mt-Vk_NzgC2lGagRGLeG3KX2zFYHDNfYaGFoKAtpHYdT1chpTdlChDmmVXpr-mECY5GTakytyNtwUegkRTMLIPGW4HDpA.Pu7GBrtuF4IOa4_hswwEBQo0nUAn2Od7YlxojO68PAQ&dib_tag=se&keywords=pump%2Bsoap%2Bdispenser%2Bkitchen&qid=1747945145&sprefix=pump%2Bsoap%2B%2Caps%2C148&sr=8-8&th=1)
@@ -328,10 +335,6 @@
 - [Weber Genesis Grill](https://www.amazon.com/s?k=weber+genesis+grill&language=en_US&crid=2Q8B3IM62CL2A&linkCode=ll2&linkId=b41fcbf8ff3ed2a077d75cfe714f11bf&sprefix=weber+ge%2Caps%2C232&tag=buyitforlife08-20&ref=as_li_ss_tl)
 - [Victorinox Swiss Army Chef's Knife](https://www.amazon.com/Victorinox-Fibrox-Chefs-Knife-8-Inch/dp/B008M5U1C2?crid=23O641XHA6V6R&keywords=Victorinox%2BFibrox%2BChef%27s%2BKnife&qid=1702764747&sprefix=victorinox%2Bkc55236%2Bfibrox%2Bchef%27s%2Bknife%2Caps%2C162&sr=8-6&ufe=app_do%3Aamzn1.fos.006c50ae-5d4c-4777-9bc0-4513d670b6bc&th=1&linkCode=ll1&tag=buyitforlife08-20&linkId=8cf514212ad3c116b4f24fed1922ee5a&language=en_US&ref_=as_li_ss_tl) 
 
-**Smoothie Makers (Not Tested)**
-- [Reemix Smoothie Maker](https://www.amazon.com/Reemix-Smoothie-Professional-Container-Stainless/dp/B0BK8QWHYD)
-- [Ganiza Smoothie Maker](https://www.amazon.com/Ganiza-Smoothie-Smoothies-15-Piece-Nutritious/dp/B0CCDG91CS)
-- [Enfmay Smoothie Maker](https://www.amazon.com/Enfmay-Smoothie-Performance-Countdown-Container/dp/B0BR3Q5JP9/ref=asc_df_B0BR3Q5JP9?mcid=d931ee0dfb7f3bd0b322ba1304557aa4&tag=hyprod-20&linkCode=df0&hvadid=693770002448&hvpos=&hvnetw=g&hvrand=11182784531376750311&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1026744&hvtargid=pla-1965287026226&th=1)   
    
 ## Medicine and Vitamins     
 ### Products      
@@ -441,7 +444,8 @@
 - [Outdoor Aluminum Patio Furniture Set](https://www.amazon.com/dp/B0DBYS38TZ?ref=ppx_yo2ov_dt_b_fed_asin_title)
 
 **Other** 
-- [Bagged Landscape Rock](https://www.homedepot.com/p/Vigoro-0-5-cu-ft-Bagged-Marble-Chip-Landscape-Rock-54141/100583677)   
+- [Bagged Landscape Rock](https://www.homedepot.com/p/Vigoro-0-5-cu-ft-Bagged-Marble-Chip-Landscape-Rock-54141/100583677)
+- [FoxFarm Grow Big Liquid Plant Food](https://www.amazon.com/FoxFarm-Grow-Big-Quart-12Cs/dp/B0049XEG2M?tag=chxyz-20&th=1) 
 - [Renew Grass and Scrub Spray](https://www.amazon.com/Seymour-20-602-Grass-Shrub-Pristine/dp/B018Y3JRHG/ref=sr_1_1?crid=BG0GDLQUZU89&dib=eyJ2IjoiMSJ9.OiJZ3PdQ1D4mhhcQnV8rty6aPyXplH5cI263hJDRnpGALe1NJjWFGE19Yt-H-LwEpTjWVh0WP4AVr2Ew_y-9gcMg6la5HYorSwPrd2eMe_P_YVlyt9T1M1-6YC976jmPbJz5-5LZZarEups3_aK5SNcfir2Y98kG5iWQunW0aAABNScEu2-TWVLw57biolzkRP1KsWOY6_RFd8wLamHGPfymiuAPS_BaLW08SGMNEXrHvfRLYfSRTm0INTE8eG9A4p1yvGY1lcWI2OG8dViiNsVZApqlsGTBueLW7MhGkcOWVrB2b1-6cb_EvQiKYMNIZ6D9rNIGOscV0aTFMUyWRYolsiJOL2ULZfTsR5Y2OacOCWKSm0ZuWXjEaydi5TXb7jj8jxBGA6-9Jg8r1Qhj6D1IiNDmE40D-L3SiAObCuKn4HwLxGz2H0DDp55MBuRt.f8zMRgTQ8rdcMFR6GRREuEYEyX6gxjRJcGKtFQ-jtWk&dib_tag=se&keywords=renew%2Bgrass&qid=1740003249&sprefix=renew%2Bgrass%2Caps%2C137&sr=8-1&th=1)    
 - [Sedge Hammer Herbicide](https://www.amazon.com/Sedgehammer-1-3-oz/dp/B004GGQ44A) - controls weed and moss
 - [Simple Lawn Solutions Lawn Food](https://www.amazon.com/Advanced-16-4-8-Balanced-NPK-Concentrated/dp/B06XWFL84R?ref_=ast_sto_dp&th=1)
