@@ -195,9 +195,11 @@
 - [Knipex](https://www.knipex-tools.com/) (Germany)   
 - [Makita](https://www.makitatools.com/) (Japan)   
 - [Rockwell](https://getrockwell.com/) (USA)
+- [FABRIC AMAZON PAGE](https://www.amazon.com/fabric/b/?ie=UTF8&node=12899121&tag=chxyz-20) 
 
 ### Products      
 - [Amico 25 Pack Recessed Ceiling Light](https://www.amazon.com/Amico-Recessed-Selectable-Ultra-Thin-Downlight/dp/B0D2H9K5QP/ref=sr_1_5?crid=29WIQ9Q5SX62S&dib=eyJ2IjoiMSJ9.khHk3H-2ixshXIXf0xmXgoQUkTK2-8RbSk2LPSeSJ5OtWDtnvTRtG-WaXjN2FiBydDAGXXXD8a8x3rnBvb43cTR0-rc2lAz1izSbESRI2KESpvjBY01zCZ8J7ElcXndzspMYWuLA_aQ7HS80KL6JbWHJskRfPyZuzXk463LL8p_Yc5VGHZIA2gzP6o5YX1Vdi7uImtaizw-3SqzV2WO_O3RblYZA_uiVPgCcriA7lN97EAu6VV6cQ5rCrCuk_g8sDhQeucJy43yDkbHwfNyFe37kBu7wjT6EYc7MxYZfrcDmT9SKU9GtvKhLTLT1ZoWOmWvv5pw6YUmtpzaSksocYX5nkwQwn-6_d8uY_RAN4ZfevRCLL3K57RAbpcjl_ioxtWRweUlcFP22JQB0r0_r3h7ySv-FgYy7zQe9JAhNw2Dq8wfbWFf1C5Sqp8JyrzpA.-su4W7XVzq2uZ1uy84wHZZ8r7GFCvatosJLkTNR29JM&dib_tag=se&keywords=Amico%2B24%2BPack%2B6%2BInch%2B5CCT%2BLED%2BRecessed%2BCeiling%2BLight%2Bwith%2BNight%2BLight%2C%2B2700K%2F3000K%2F3500K%2F4000K%2F5000K%2BSelectable%2BUltra-Thin%2BRecessed%2BLighting%2C%2B12W%3D110W%2C%2B1100LM%2C%2BDimmable%2BCanless%2BWafer%2BDownlight%2BETL%26FCC&qid=1740002918&sprefix=amico%2B24%2Bpack%2B6%2Binch%2B5cct%2Bled%2Brecessed%2Bceiling%2Blight%2Bwith%2Bnight%2Blight%2C%2B2700k%2F3000k%2F3500k%2F4000k%2F5000k%2Bselectable%2Bultra-thin%2Brecessed%2Blighting%2C%2B12w%2B110w%2C%2B1100lm%2C%2Bdimmable%2Bcanless%2Bwafer%2Bdownlight%2Betl%26fcc%2Caps%2C123&sr=8-5&th=1)
+- [AquaGuard 1100+ Switch for Metal AC Pan](https://www.amazon.com/dp/B01AJGEEWY/ref=va_live_carousel?pf_rd_r=BHF03V2XX15SXB1JE73Y&pf_rd_m=ATVPDKIKX0DER&pf_rd_t=liveDestination&pf_rd_i=video&linkCode=ilv&ascsubtag=VideoCreatorPortal%3A0a9610198fe84e6eb3207cc9fdddfabb&asc_contentid=amzn1.vse.video.001d7eb434734f9394afc51aa6d15235&pd_rd_i=B01AJGEEWY&th=1&psc=1&tag=chxyz-20)
 - [Sunco 10 Pack A15 Light Bulb LED](https://www.amazon.com/Sunco-Lighting-Equivalent-Dimmable-Appliance/dp/B07LFRSL83?ref_=ast_sto_dp&th=1) 
 - [Large Heat Resistant Mat](https://www.amazon.com/Resistant-Curling-Straightener-Styling-Silicone/dp/B08ZKP72WM/ref=sr_1_9?crid=XWZBI8R3Q1VI&dib=eyJ2IjoiMSJ9.Gf1Ml67Y7ILMpSvf3zDS31WEmnghx5oNszi_gem3_RlT7EtTPpO1dzwo2Sek5v75LRS9ojKGGbiHnqpdc4tuP32jkOtbBegl_tZbxaX5bdQemkUk6_CAGTLqfa0djSi61TIPP0AseY35lQnrtB9Imoya9Lu3rsO8zipVkEDtHBi8jI2IUtsiORg97wULDNMlEnccD5vDtohd4LzAs1cYl6IAdyLaxXd3GZLZRPhCl_0KG7ss8AQtLYNZI6yGgOYP6Xwm_ixaiR4IKHEn4gjJvVjfgaZZIN5132z6aJLuq3s.cZ3dJPKA-QltYGjacaEcLQXeMEIjRd-KQk771Kir41E&dib_tag=se&keywords=Large%2BHeat%2BResistant%2BMat&qid=1751323999&sprefix=large%2Bheat%2Bresistant%2Bmat%2Caps%2C103&sr=8-9&th=1) 
 - [Simple Houseware 4-Pack Drawer Organizer Set](https://www.amazon.com/dp/B07Q3XZ8Z6?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
@@ -280,6 +282,7 @@
   
 ### Products      
 - [Grill Tongs](https://www.homedepot.com/p/Weber-Precision-Grill-Tongs-6768/317178669?source=shoppingads&locale=en-US&srsltid=AfmBOoqPoAwiIO-t6zgYzS6WnyS0ukijfQwdECOZIWun0X76Qnvg1gxYluk&gQT=2#overlay)
+- [Portable Can Opener](https://www.amazon.com/Swing-Way-407BK-Portable-Opener/dp/B001CDEFK0?tag=chxyz-20&th=1) 
 - [Hiware 12-Piece Demitasse Espresso Spoons](https://www.amazon.com/dp/B01KC6A5RY?ref=ppx_yo2ov_dt_b_fed_asin_title) 
 - [Ice Cream Scoop](https://www.amazon.com/Zeroll-Original-Conductive-Aluminum-Release/dp/B0002U33RU/ref=asc_df_B0002U33RU?mcid=ceac575867a7307c99e3ca2fbac88879&tag=hyprod-20&linkCode=df0&hvadid=693071387716&hvpos=&hvnetw=g&hvrand=9660746868208320618&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027776&hvtargid=pla-305573577960&th=1)
 - [Bunn 32268.1001 Faucet Seal for Ultra-1 & Ultra-2 Frozen Drink Machine](https://www.amazon.com/dp/B009ZYXVQ2?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
