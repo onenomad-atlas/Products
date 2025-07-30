@@ -287,6 +287,13 @@
   
 ### Products      
 - [Grill Tongs](https://www.homedepot.com/p/Weber-Precision-Grill-Tongs-6768/317178669?source=shoppingads&locale=en-US&srsltid=AfmBOoqPoAwiIO-t6zgYzS6WnyS0ukijfQwdECOZIWun0X76Qnvg1gxYluk&gQT=2#overlay)
+- [Olicity Cheese Cloths](https://www.amazon.com/dp/B097PF8HXR?linkCode=ssc&creativeASIN=B097PF8HXR&asc_item-id=amzn1.ideas.1IPEJWJ6FO7MD&ref_=aip_sf_list_spv_ons_d_asin&tag=chxyz-20&th=1)
+- [Wilton Professional Reusable Decorating Piping Bag](https://www.amazon.com/dp/B000ANOW10?linkCode=ssc&creativeASIN=B000ANOW10&asc_item-id=amzn1.ideas.1IPEJWJ6FO7MD&ref_=aip_sf_list_spv_ons_d_asin&tag=chxyz-20&th=1)
+- [SMARTAKE 200 Pcs Parchment Paper Baking Sheets](http://amazon.com/dp/B07H79KX8W?linkCode=ssc&creativeASIN=B07H79KX8W&asc_item-id=amzn1.ideas.1IPEJWJ6FO7MD&ref_=aip_sf_list_spv_ons_d_asin&tag=chxyz-20&th=1)
+- [Food Coloring AmeriColor](https://www.amazon.com/dp/B00KCUXRLC?linkCode=ssc&creativeASIN=B00KCUXRLC&asc_item-id=amzn1.ideas.1IPEJWJ6FO7MD&ref_=aip_sf_list_spv_ons_d_asin&tag=chxyz-20)
+- [Amazon Basics Reusable Silicone Baking Cups](https://www.amazon.com/dp/B01KWTGAVQ?linkCode=ssc&creativeASIN=B01KWTGAVQ&asc_item-id=amzn1.ideas.1IPEJWJ6FO7MD&ref_=aip_sf_list_spv_ons_d_asin&tag=chxyz-20&th=1)
+- [Wilton Open Star Piping Tip 1M](https://www.amazon.com/dp/B00DNV81XQ?linkCode=ssc&creativeASIN=B00DNV81XQ&asc_item-id=amzn1.ideas.1IPEJWJ6FO7MD&ref_=aip_sf_list_spv_ons_d_asin&tag=chxyz-20) 
+- [Hiware 200 Count Unbleached Parchment Paper Squares](https://www.amazon.com/dp/B081TZGGYS?linkCode=ssc&creativeASIN=B081TZGGYS&asc_item-id=amzn1.ideas.1IPEJWJ6FO7MD&ref_=aip_sf_list_spv_ons_d_asin&tag=chxyz-20) 
 - [The Spice Hunter Garam Masala Blend](https://www.amazon.com/Spice-Hunter-Garam-Masala-Blend/dp/B00BEQONAM?tag=chxyz-20&th=1)
 - [Portable Can Opener](https://www.amazon.com/Swing-Way-407BK-Portable-Opener/dp/B001CDEFK0?tag=chxyz-20&th=1) 
 - [Hiware 12-Piece Demitasse Espresso Spoons](https://www.amazon.com/dp/B01KC6A5RY?ref=ppx_yo2ov_dt_b_fed_asin_title) 
