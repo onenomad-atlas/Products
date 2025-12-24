@@ -60,7 +60,8 @@
 ### Products     
 - [KORE Men’s Top-Grain Leather Track Belts](https://www.amazon.com/Top-Grain-Leather-Express-Gunmetal-Buckle/dp/B01LWX5WEZ?ref_=ast_sto_dp)
 - [Thermajohn Long Johns Thermal Underwear for Men Fleece Lined Base Layer Set](https://www.amazon.com/dp/B018DQI53G?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1&psc=1)
-- [Down Wash](https://www.rei.com/product/890310/nikwax-down-wash-10-fl-oz?cm_mmc=aff_IM-_-2009139-_--_-304633_a45aac64d-_-AvantLink%20USA&avad=304633_a45aac64d&irclickid=UiKyNXWmmxycTUn36v1rTWlJUkpTZGzx3UIww80&irgwc=1&afsrc=1) - cleaning product maintains the loft and insulating properties of down-filled items
+- [Down Wash](https://www.rei.com/product/890310/nikwax-down-wash-10-fl-oz?cm_mmc=aff_IM-_-2009139-_--_-304633_a45aac64d-_-AvantLink%20USA&avad=304633_a45aac64d&irclickid=UiKyNXWmmxycTUn36v1rTWlJUkpTZGzx3UIww80&irgwc=1&afsrc=1) - cleaning product maintains the loft and insulating properties of down-filled items     
+- [Super Thermo Long Sleeve Baselayer](https://www.brynjeusa.com/product/unisex-long-sleeve-shirt-super-thermo/)   
   
 ## Attars and Perfumes    
 - **Ajmal**
