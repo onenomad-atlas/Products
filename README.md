@@ -148,6 +148,7 @@
 
 
 ## Beauty
+- [Weleda Skin Food Lip Butter](https://www.amazon.com/dp/B07JKF4G32) - Plant Rich Moisturizing Lip Care
 - [Parlux 385 Powerlight Hair Dryer](https://www.amazon.com/Powerlight-Ceramic-Hair-Designs-Attachment/dp/B08FF7W2VH?th=1)  
 - [ELLA BELLA Professional Ionic Hair Dryer](https://www.amazon.com/dp/B0D6LN1B1D?maas=maas_adg_api_592580855929139357_static_9_129&ref_=aa_maas&tag=maas&aa_campaignid=lv_ZuHzNZ1MzZMltop6R4&aa_adgroupid=lv_xCmn2gMm9GevDgnY2T&aa_creativeid=lv_q7unjJiRpua8DTVJxK&m=A2XKN5FIA4UV25&th=1)
 - [Tweezerman Brow Shaping Scissors and Brush](https://www.amazon.com/dp/B000WHYB1A?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
@@ -379,7 +380,9 @@
 - [Victorinox Swiss Army Chef's Knife](https://www.amazon.com/Victorinox-Fibrox-Chefs-Knife-8-Inch/dp/B008M5U1C2?crid=23O641XHA6V6R&keywords=Victorinox%2BFibrox%2BChef%27s%2BKnife&qid=1702764747&sprefix=victorinox%2Bkc55236%2Bfibrox%2Bchef%27s%2Bknife%2Caps%2C162&sr=8-6&ufe=app_do%3Aamzn1.fos.006c50ae-5d4c-4777-9bc0-4513d670b6bc&th=1&linkCode=ll1&tag=buyitforlife08-20&linkId=8cf514212ad3c116b4f24fed1922ee5a&language=en_US&ref_=as_li_ss_tl) 
 
 ## Korean    
-
+### Products
+- [Torriden Ceramide Lip Essence](https://www.amazon.com/dp/B0BT3Z7469) - Korean Lip Balm
+- 
    
 ## Medicine and Vitamins     
 ### Products      
