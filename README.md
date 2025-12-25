@@ -381,8 +381,7 @@
 
 ## Korean    
 ### Products
-- [Torriden Ceramide Lip Essence](https://www.amazon.com/dp/B0BT3Z7469) - Korean Lip Balm
-- 
+- [Torriden Ceramide Lip Essence](https://www.amazon.com/dp/B0BT3Z7469) - Korean Lip Balm     
    
 ## Medicine and Vitamins     
 ### Products      
