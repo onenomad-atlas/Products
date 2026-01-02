@@ -147,7 +147,8 @@
 - [Korky BeehiveMAX Heavy Duty Toilet Plunger](https://www.amazon.com/Korky-96-4AM-Telescoping-BeehiveMAX-Universal/dp/B0851T29PF/ref=sr_1_1?crid=1MGAGTDHW92MS&dib=eyJ2IjoiMSJ9.LozdkzN1k93He2FigykvLhr-qPEA_5GFVOzeSTPfyQy_xBn5yF7HSbrApX_k1cLVC4LLnLd7U5lTSuKe73YBGk7kGdE5YULxGUWg7vp3n_2Kqn2knaUcvM5HoWl55zVr18W2ZYBj45NhZVVVd9DETA-oBqYagwbHikD_Is0yLiXSrHFokOIolvlwibjw5WgZTDHzCRzT6ciPcSfLuOMqJLLN3hq0pqmguwYtwHv74i--3d4gFFMsATcTBfyw0gHP6KH-rL_wdEqkWiOx2oze6bX1dFtxLdI-Iht0VhpLBxk.huLxmKswjtxSdL1rA0VIkVUsR3YmGb0PfKYqFWfdty0&dib_tag=se&keywords=Korky+Beehive+Plunger&linkCode=ll2&linkId=879a5117f3fc2739615e212ef2cb088e&qid=1745198041&sprefix=korky+beehive+plunger%2Caps%2C97&sr=8-1) 
 
 
-## Beauty
+## Beauty      
+- [Aromatica Rosemary Salt Scrub Shampoo](https://www.amazon.com/dp/B0CD1XHKYN?th=1)   
 - [Weleda Skin Food Lip Butter](https://www.amazon.com/dp/B07JKF4G32) - Plant Rich Moisturizing Lip Care
 - [Parlux 385 Powerlight Hair Dryer](https://www.amazon.com/Powerlight-Ceramic-Hair-Designs-Attachment/dp/B08FF7W2VH?th=1)  
 - [ELLA BELLA Professional Ionic Hair Dryer](https://www.amazon.com/dp/B0D6LN1B1D?maas=maas_adg_api_592580855929139357_static_9_129&ref_=aa_maas&tag=maas&aa_campaignid=lv_ZuHzNZ1MzZMltop6R4&aa_adgroupid=lv_xCmn2gMm9GevDgnY2T&aa_creativeid=lv_q7unjJiRpua8DTVJxK&m=A2XKN5FIA4UV25&th=1)
