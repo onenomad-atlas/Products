@@ -63,7 +63,9 @@
 - [Thermajohn Long Johns Thermal Underwear for Men Fleece Lined Base Layer Set](https://www.amazon.com/dp/B018DQI53G?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1&psc=1)
 - [Down Wash](https://www.rei.com/product/890310/nikwax-down-wash-10-fl-oz?cm_mmc=aff_IM-_-2009139-_--_-304633_a45aac64d-_-AvantLink%20USA&avad=304633_a45aac64d&irclickid=UiKyNXWmmxycTUn36v1rTWlJUkpTZGzx3UIww80&irgwc=1&afsrc=1) - cleaning product maintains the loft and insulating properties of down-filled items     
 - [Super Thermo Long Sleeve Baselayer](https://www.brynjeusa.com/product/unisex-long-sleeve-shirt-super-thermo/)
-- [Merino Wool Base Layer Mens Set](https://www.amazon.com/dp/B0BDZPYRDQ?th=1&psc=1)      
+- [Merino Wool Base Layer Mens Set](https://www.amazon.com/dp/B0BDZPYRDQ?th=1&psc=1)
+- [AstroAI Balaclava Ski Mask Winter Fleece](https://www.amazon.com/gp/product/B08K74V6MB/ref=ox_sc_act_title_1?creative=9325&camp=1789&linkCode=ur2&ie=UTF8&tag=slickdeals09-20&ascsubtag=b70e26b2ef6b11f08bbf6adda15b86c50INT&smid=A2NOFZGOKNP3PJ&th=1)
+- [Minus 33 Merino Wool Long Sleeve](https://www.amazon.com/Minus33-Merino-Wool-Chocorua-Midweight/dp/B0006FKJIC?th=1&psc=1)    
   
 ## Attars and Perfumes    
 - **Ajmal**
@@ -158,6 +160,7 @@
 - [Shark HD430 FlexStyle Air Styling & Drying System](https://www.amazon.com/dp/B0B89P16MC?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
 - [Nose & Ear Hair Trimmer](https://www.amazon.com/Groom-Mate-Platinum-Nose-Trimmer/dp/B000EBFJXS/ref=sr_1_5?crid=M98KCQI9LAWX&dib=eyJ2IjoiMSJ9.beyjyA450EibcAnUXcmgyxm_JbR8uHMzYXbwigCXsodT5n5miZrr-5jhtmydFBSf_9wl3bB_cvH0PWzXTfA1thE0M_BAg6iJ6GR_pfGr3kbSOPPQYp6hIOUnoSFdIPokt4-J16TDNz0_l9_rJ2oQ68CTfyW3ezdZj1TfjRgQqBFdYxHUQNm9pN5JfD8MUYc-2fAZ5te_olD0tmJ92Uj7G509HFOg7I06ZDhl8DDxM4lej1lupY2a37oeVwZQSkx0mdGMJm-v3-BQcafnDbk25kj4YTa3rfnhv4wXhqIzX47_YxO3J9pJ3xoXEEQMAtDjoXRvYssWU8SyhfQo104bVo6-LJnJzIwNJnVbSjI6yPrU225uiYEEEkXHS-qI_Me2iPaN5pb1HpWSpG-OuA2zZXdeqYXV2iJXvunpQvMAFPPoVbX6UFGNTk5CEfymXyjC.WC_fPMoooBj_WQOT7Pz2WQ40M1eLtpy2KQPN00clIhw&dib_tag=se&keywords=groom+mate&qid=1739327194&sprefix=groom+mate%2Caps%2C121&sr=8-5#customerReviews)
 - [Kenra Professional Volume Spray 25 | Super Hold](https://www.amazon.com/dp/B01N2ROL68?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
+- [Magnifeko Professional Hair Dryer](https://www.amazon.com.mx/Magnifeko-1875W-Professional-Dryer-Conditioning/dp/B07DKF5SQZ)     
 - [Got2b Glued Spray Wax](https://www.amazon.com/dp/B08PLFZB89?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
 - [BabylissPRO Nano Titanium Ultra-Thin Hair Straightener](https://www.amazon.com/dp/B0CCWJ5J4S?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1)
 - [Conair Double Ceramic 1-Inch Curling Iron](https://www.amazon.com/dp/B07CKKGR83?ref=ppx_yo2ov_dt_b_fed_asin_title&th=1) 
@@ -250,6 +253,7 @@
 - [PVC Red Hot Blue Glue and Purple Primer](https://www.homedepot.com/p/Christy-s-8-oz-PVC-Red-Hot-Blue-Glue-and-Purple-Primer-Handy-Pack-RH-RHBV-HDYPK-H/205307011#overlay)
 - [StudBuddy](https://www.thestudbuddy.com/product/the-studbuddy/?srsltid=AfmBOopw1D7aP0r_2iUx7yEc6oWRYi4Ti1JVFXx3vVtjr55-qrkm94M-)
 - [Sunneday Retractable Garden Hose Reel With Hose](https://www.costco.com/sunneday-retractable-garden-hose-reel-with-hose.product.100539481.html?qid=9151b863466011f082ee000a0a1cb829)
+- [Goo Gone Pro-Power Pump Spray](https://www.walmart.com/ip/Goo-Gone-Pro-Power-Pump-Spray/17300573?wmlspartner=wlpa&selectedSellerId=0&wl13=546&gclsrc=aw.ds&adid=2222222227717300573_117755028669_12420145346&wl0=&wl1=g&wl2=c&wl3=501107745824&wl4=pla-394283752452&wl5=9027776&wl6=&wl7=&wl8=&wl9=pla&wl10=8175035&wl11=local&wl12=17300573&veh=sem_LIA&gclsrc=aw.ds&gad_source=1&gad_campaignid=12420145346&gbraid=0AAAAADmfBIpXHRVh_bfG1azfULiu_w92l&gclid=EAIaIQobChMIi-uH7_3ykAMVMFR_AB2LRiPjEAQYAiABEgK0SfD_BwE)       
 - [Novaflex](https://store.novagard.com/product/novaflex-multi-purpose-adhesive-sealant/)
 - [Goo Gone Original Adhesive Remover](https://www.amazon.com/Goo-Gone-Original-Adhesive-Stickers/dp/B001BDGDWO?th=1)
 - [Everbilt 14 Gauge Thick Zinc Plated Slotted Steel Angle](https://www.homedepot.com/p/Everbilt-1-1-2-in-x-8-ft-14-Gauge-Thick-Zinc-Plated-Slotted-Steel-Angle-61802/332734318)
@@ -428,6 +432,7 @@
 ## Travel   
 ### Products    
 - [EPICKA Universal Travel Adapter](https://www.amazon.com/EPICKA-Universal-Travel-Adapter-Power/dp/B078S3M2NX/ref=sr_1_5?crid=3HQWQHS8VAEOZ&dib=eyJ2IjoiMSJ9.TinYNy1lGEvpSTwLZ5V_ax6VMDU7DoE6r3d-H4kzth-rM9pEP-0wsIES4nA0KtUIvJnvlSvIm8rsVNGif2fHHrXqWziNJIPTI4EKewaPEKZOfBom8x_t_wW31SuMl3cKTlE1C4LvFZ9aMrjjlnygfa3J_4ci1tCO7V9w4zwSkeRN5XwbWc-jp_wR8sx5NCZiIOtD7hTu90YPG0ernq7zZOnyfKainpkXapbTy7yLD1j6NUph0VFkaDWIiSLDPuAhQPJFP3W7Gd903CXqStasIKHG0Zr0FILwiPOdHVo8crrz8dnDSOE54mw1xU1mH-S0sG5XWdmSXr9eQurbdktl1tJYQ6g-1HgUsjZ7GS-1CNZHz7Eq7z5eDOle1WzWNdOchj9bMOY2YulMG7FvOBpe50rRb042Nhpj7WVlvrdI0ej6d5V37K67_av6sOmGeUMP.uCcUgTeo7qsGhLZbL1NGK5Ego_K-5YFaNGcJZLK03Kw&dib_tag=se&keywords=epicka%2Buniversal%2Btravel%2Badapter&qid=1741309466&sprefix=epicka%2B%2Caps%2C126&sr=8-5&th=1)
+- [Bonine MAX Chewable for Motion Sickness Relief](https://www.amazon.com/Bonine-Chewable-Motion-Sickness-Relief/dp/B0BZQNJM7X?th=1)    
 - [AstroAI Tire Inflator](https://www.amazon.com/AstroAI-Portable-Compressor-Inflator-Motorcycle/dp/B07QR4Q42L/ref=sr_1_2_sspa?dib=eyJ2IjoiMSJ9.8Gqfa9BvBCwkCx0gxcRVqsQBDBmQrLJ3KXeFcerru3um7QhagX6bYN1GQQmve-dXlBi4nfHLf5tKmcHx1YAxugakPZVct-EM57qTv_SjyzLrp76LsAc-WeUj42DxKl1YJA6hyCXyTGhMNIvF99mK7xGD2S0R_2YNono0YQgyQ8kgaVXFlFv53RMsLPfVIACphjQ6xzbZha4LJvIV9KuCy16rLDQJrsAc1qO8BJt-IsgU66cNm8Pa2DTXcyxSleZlqF-0sojoMEE9vpSfSd7ESMpeYqw4QbPrpIU1K2BqqKg.J0G1a5eN8B20rcFQetTmXACiZhlDma7grZydy6v7ivU&dib_tag=se&keywords=bike%2Band%2Bcycle%2Bair%2Bpump&qid=1755046263&sr=8-2-spons&sp_csd=d2lkZ2V0TmFtZT1zcF9hdGY&th=1)
 - [BAGSMART Tote Bag](https://www.amazon.com/dp/B0CS2R1S1B)    
 - [BALEINE 1PK Heavy Duty Garment Bag with Shoe Storage Travel Bag for Dresses](https://www.amazon.com/BALEINE-Garment-Storage-Dresses-Essential/dp/B0C7BCV3XS?ref_=ast_sto_dp&th=1)
